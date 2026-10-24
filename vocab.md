@@ -827,3 +827,885 @@ Practice challenge: Fill in the blanks without looking back.
 6. She walked \_\_\_\_\_\_ the beach while listening to music.
 
 ---
+
+# Page 7 — Vocabulary (Agreement → Along)
+
+1\. Agreement — a state of sharing the same opinion; a formal arrangement or contract; harmony between people or things.
+
+- We reached an agreement about the project deadline.
+- The verb must be in agreement with its subject.
+
+2\. Agriculture — the practice of growing crops and raising animals for food or other products.
+
+- Agriculture provides food and jobs for millions of people.
+- New technology is helping farmers improve agricultural production.
+
+3\. Aid — help or assistance; a person or thing that provides support; to help someone or something.
+
+- The government provided financial aid to struggling families.
+- This chart will aid your understanding of the process.
+
+4\. Ailment — an illness or health problem, usually one that is not extremely serious.
+
+- She stayed home because of a minor stomach ailment.
+- Regular exercise can help prevent some common ailments.
+
+5\. Aim — to point or direct something toward a target; to intend or plan to achieve something; a goal or purpose.
+
+- He aimed the camera at the mountain.
+- I aim to improve my English speaking skills this year.
+
+6\. Air — the mixture of gases surrounding Earth; to broadcast a program; to express a feeling or opinion publicly.
+
+- Please open the window to let in some fresh air.
+- The interview will air on television tomorrow evening.
+
+7\. Aircraft — a vehicle designed to fly, such as an airplane or helicopter.
+
+- The aircraft landed safely despite the strong winds.
+- The airport handles hundreds of aircraft every day.
+
+8\. Aisle — a passage between rows of seats, shelves, or other objects.
+
+- Please keep the aisle clear during the flight.
+- You can find the cleaning products in aisle five.
+
+9\. Ajar — slightly open, usually describing a door, window, or gate.
+
+- I found the front door ajar when I returned home.
+- She left the window ajar to let some fresh air into the room.
+
+10\. Alarm — a warning of danger; a device or sound that alerts people; to make someone frightened or worried.
+
+- The fire alarm rang throughout the building.
+- The sudden drop in sales alarmed the management team.
+
+11\. Album — a collection of songs, photographs, or other related items; a book used for keeping photographs or memorabilia.
+
+- The singer released a new album last month.
+- I keep pictures from my childhood in a family album.
+
+12\. Alert — a warning about possible danger; watchful and ready to respond; to warn someone about something.
+
+- The weather service issued a flood alert.
+- Security staff must remain alert throughout their shifts.
+
+13\. Alien — a foreigner or someone from another planet; unfamiliar, different, or inconsistent with something.
+
+- The science-fiction film follows an alien who visits Earth.
+- The company's strict rules felt alien to someone used to a flexible workplace.
+
+14\. Alienate — to make someone feel isolated or unfriendly toward you; to transfer ownership of property, in formal or legal use.
+
+- Ignoring employees' concerns can alienate them from management.
+- The legal agreement restricted his ability to alienate the property.
+
+15\. Alignment — an arrangement in a straight line or correct position; agreement or cooperation between people, plans, or goals.
+
+- Check the alignment of the printer before using it.
+- Our team's goals are in alignment with the company's strategy.
+
+16\. Alike — similar to each other; in the same or a similar way.
+
+- The two brothers look very much alike.
+- The new policy affects students and teachers alike.
+
+17\. Allergic — having an immune reaction to a particular substance; extremely sensitive or strongly opposed to something, figuratively.
+
+- I'm allergic to peanuts, so I always check food labels.
+- He seems allergic to criticism and rarely accepts feedback calmly.
+
+18\. Allergy — an immune-system reaction to a substance that is usually harmless to most people.
+
+- She has a severe allergy to bee stings.
+- Pollen allergies often cause sneezing and itchy eyes.
+
+19\. Alliance — a partnership or union formed for mutual benefit, protection, or a shared purpose.
+
+- The two companies formed an alliance to develop new technology.
+- The countries created a military alliance for mutual defense.
+
+20\. Allocate — to assign or distribute resources, money, time, or tasks for a particular purpose.
+
+- The manager allocated extra funds to the marketing department.
+- Try to allocate thirty minutes each day to English practice.
+
+21\. Allot — to give or assign a particular amount or share to someone or something.
+
+- Each employee was allotted two days of training.
+- We allotted an hour for the team meeting.
+
+22\. Allowance — an amount of money or another resource given regularly or permitted for a particular purpose; permission or consideration granted in a specific context.
+
+- My parents gave me a monthly allowance when I was a student.
+- The budget includes an allowance for unexpected expenses.
+
+23\. Alloy — a mixture of a metal with one or more other elements; to mix or combine substances, especially metals.
+
+- Brass is an alloy of copper and zinc.
+- Manufacturers alloy certain metals to improve their strength.
+
+24\. Ally — a person, group, or country that supports or cooperates with another; to join with someone for a shared purpose.
+
+- She became a valuable ally during the negotiations.
+- The two organizations agreed to ally themselves against fraud.
+
+25\. Alone — without other people; separate from others; only or exclusively in certain expressions.
+
+- I prefer to study alone when I need to concentrate.
+- Money alone cannot guarantee happiness.
+
+26\. Along — moving forward or following the length of something; together with someone; at a point in a process.
+
+- We walked along the river after lunch.
+- A colleague came along with me to the meeting.
+
+## Quick distinctions to remember
+
+- Agreement vs. alliance: An agreement is an understanding or arrangement; an alliance is a partnership formed to pursue shared interests.
+- Aid vs. ally: Aid is help or assistance; an ally is someone who provides support or cooperates with you.
+- Allocate vs. allot: Both mean assigning resources or shares. Allocate is especially common for budgets and resources; allot often emphasizes giving someone a specific share or amount.
+- Allergic vs. allergy: Allergic describes a person or their reaction; an allergy is the condition or reaction itself.
+- Alarm vs. alert: An alarm is a warning or warning device; an alert is a warning message or a state of watchfulness.
+- Air vs. aircraft: Air is the gas around us or the act of broadcasting; an aircraft is a flying vehicle.
+- Alone vs. alike: Alone means by yourself; alike means similar to one another.
+- Along vs. aisle: Along describes movement or position following a length; an aisle is a passage between rows.
+- Aim vs. allocate: To aim is to direct effort toward a goal; to allocate is to distribute resources for a purpose.
+
+# Page 8 — Vocabulary (Alongside → Amplify)
+
+1\. Alongside — next to or beside something; together with someone or something.
+
+- She parked her car alongside the office building.
+- Our department worked alongside the engineering team to solve the problem.
+
+2\. Alter — to change something, usually partially, without completely replacing it.
+
+- I need to alter my schedule to attend the interview.
+- The tailor altered my jacket to make it fit better.
+
+3\. Alternate — to take turns; to happen in turns; an alternative or substitute.
+
+- We alternate between working from home and working in the office.
+- If the main speaker is unavailable, the alternate speaker will give the presentation.
+
+4\. Alternation — a repeated change between two or more states, actions, or conditions.
+
+- The alternation of hot and cold weather damaged the crops.
+- The machine operates through the alternation of two different cycles.
+
+5\. Alternative — another available choice or possibility; a different option that can replace something.
+
+- We need an alternative solution because the first plan failed.
+- Taking the train is a good alternative to driving.
+
+6\. Altitude — height above sea level or another reference point.
+
+- The aircraft reached an altitude of ten thousand meters.
+- Some people experience headaches at high altitudes.
+
+7\. Aluminum — a lightweight, silvery metal used in products such as cans, aircraft, and construction materials.
+
+- This window frame is made of aluminum.
+- Aluminum is widely used in aircraft because it is lightweight.
+
+8\. Amateur — someone who does an activity for enjoyment rather than professionally; lacking professional experience or skill.
+
+- She is an amateur photographer who takes beautiful landscape pictures.
+- The report looked amateur because it contained many formatting errors.
+
+9\. Amaze — to surprise someone greatly or fill them with wonder.
+
+- The scientist's discovery amazed the entire research team.
+- It amazes me how quickly children learn new languages.
+
+10\. Amazement — a feeling of great surprise or wonder.
+
+- The children watched the fireworks in amazement.
+- To my amazement, I passed the exam on my first attempt.
+
+11\. Ambassador — an official representative of a country; a person who represents or promotes an organization, cause, or brand.
+
+- The ambassador met with government officials to discuss trade.
+- She became a brand ambassador for a sustainable clothing company.
+
+12\. Ambiguity — the quality of having more than one possible meaning; uncertainty caused by unclear information.
+
+- The ambiguity of the contract caused a disagreement.
+- We removed the ambiguity from the instructions before sending them to customers.
+
+13\. Ambiguous — unclear or open to more than one interpretation.
+
+- His email was ambiguous, so I asked him to explain what he meant.
+- The contract contains an ambiguous clause about payment dates.
+
+14\. Ambition — a strong desire to achieve something, especially success or an important goal.
+
+- Her ambition is to become a successful data scientist.
+- He has the ambition and determination to start his own business.
+
+15\. Ambitious — having a strong desire to succeed; requiring considerable effort or aiming for a challenging goal.
+
+- She is ambitious and works hard to develop her skills.
+- The company announced an ambitious plan to expand into ten countries.
+
+16\. Ambulance — a specially equipped vehicle used to transport sick or injured people and provide emergency medical care.
+
+- An ambulance arrived within minutes of the accident.
+- Call an ambulance if someone is seriously injured.
+
+17\. Amend — to change or improve something, especially a document, law, agreement, or plan.
+
+- The committee voted to amend the proposed policy.
+- I amended my CV to include my latest certification.
+
+18\. Amendment — a change or addition made to a document, law, agreement, or proposal.
+
+- The contract requires an amendment before it can be signed.
+- Parliament approved an amendment to the law.
+
+19\. Amends — something done to compensate for harm or correct a mistake, usually in the phrase make amends.
+
+- He apologized and offered to make amends for his mistake.
+- The company paid compensation to make amends for the damage.
+
+20\. Amiable — friendly, pleasant, and easy to like.
+
+- Our new manager is amiable and approachable.
+- Despite the disagreement, they remained amiable throughout the meeting.
+
+21\. Amicable — friendly and peaceful, especially when resolving a disagreement or ending a relationship.
+
+- The two companies reached an amicable settlement.
+- They had an amicable divorce and continued to support their children.
+
+22\. Amid — in the middle of or surrounded by something, especially a situation or group of things.
+
+- The team continued working amid growing pressure.
+- Amid the celebrations, she received a call about her new job.
+
+23\. Ammunition — bullets, shells, and other supplies used in weapons; information or arguments that can be used to support a position or criticize someone.
+
+- The soldiers checked their ammunition before leaving.
+- His careless comments gave his opponents ammunition during the debate.
+
+24\. Amount — a quantity or total; to reach a particular total or result.
+
+- The total amount due is 500 pounds.
+- The repair costs amount to more than the car is worth.
+
+25\. Ample — more than enough; generous in size, quantity, or opportunity.
+
+- We have ample time to finish the report before Friday.
+- The apartment has ample space for a small home office.
+
+26\. Amplification — the act of making something stronger or louder; the addition of details or explanation to clarify a point.
+
+- The amplification system made the speaker's voice easier to hear.
+- The report needs some amplification to explain the reasons behind the decision.
+
+27\. Amplify — to make something louder, stronger, or more intense; to expand an explanation by adding details.
+
+- The microphone amplifies the speaker's voice.
+- She amplified her argument with examples from recent research.
+
+## Quick distinctions to remember
+
+- Alter vs. amend: Alter means to change something generally; amend often means to improve or correct a document, rule, or proposal.
+- Alternate vs. alternative: Alternate often means taking turns or serving as a substitute; an alternative is another choice.
+- Ambiguous vs. ambiguity: Ambiguous is an adjective describing something unclear; ambiguity is the noun for that lack of clarity.
+- Amiable vs. amicable: An amiable person is friendly; an amicable discussion or settlement is peaceful and cooperative.
+- Amaze vs. amazement: To amaze is to cause great surprise; amazement is the feeling of surprise.
+- Amendment vs. amends: An amendment is a formal change; amends refers to compensation or efforts to correct a wrong.
+- Ample vs. amount: Ample means more than enough; amount refers to a quantity or total.
+- Amplify vs. amplification: Amplify is the verb; amplification is the noun.
+
+# Page 9 — Vocabulary (Amuse → Antique)
+
+1\. Amuse — to entertain someone or make them laugh; to keep someone interested.
+
+- The comedian amused the audience with funny stories.
+- The puzzle amused the children during the long journey.
+
+2\. Analogy — a comparison between things that are similar in some way, often used to explain an idea.
+
+- The teacher used an analogy to explain how computer networks work.
+- Learning a language is like building a house; that analogy helped me understand the process.
+
+3\. Analysis — a detailed examination of something to understand its parts, meaning, or performance.
+
+- The analyst prepared an analysis of the company's sales data.
+- A careful analysis of the problem revealed the main cause.
+
+4\. Analytical — involving careful examination and logical thinking.
+
+- Data scientists need strong analytical skills.
+- Her analytical approach helped the team identify the source of the error.
+
+5\. Analyze — to examine something carefully to understand it or draw conclusions.
+
+- We need to analyze customer feedback before changing the product.
+- The doctor analyzed the test results to understand the patient's condition.
+
+6\. Ancestor — a person in your family who lived many generations before you; an earlier form or predecessor of something.
+
+- My ancestors lived in this region for generations.
+- Modern birds evolved from ancestors that lived millions of years ago.
+
+7\. Anchor — to secure something firmly; to provide stability; to present or coordinate a broadcast.
+
+- Anchor the tent securely before the wind gets stronger.
+- She will anchor the evening news program tonight.
+
+8\. Anecdote — a short, interesting, or amusing story about a real event or person.
+
+- The manager shared an anecdote about his first job.
+- I included a personal anecdote in my presentation to make it more engaging.
+
+9\. Angular — having angles or sharp corners; sometimes describing a person's appearance or movements as stiff or bony.
+
+- The building has an angular design with sharp geometric lines.
+- His angular face and prominent cheekbones made him easy to recognize.
+
+10\. Animate — to give life, movement, or energy to something; to make images appear to move.
+
+- The artist used software to animate the character.
+- Her enthusiasm animated the entire discussion.
+
+11\. Animation — the process of making still images appear to move; liveliness or energy.
+
+- The studio produces animation for films and video games.
+- The teacher's animation made the lesson more interesting.
+
+12\. Ankle — the joint connecting the foot to the leg.
+
+- I twisted my ankle while playing football.
+- Wear supportive shoes to protect your ankles during long walks.
+
+13\. Annex — to attach or add something; to take control of territory and incorporate it into a country or organization.
+
+- The university plans to annex a new building to its main campus.
+- The country attempted to annex the neighboring territory.
+
+14\. Anniversary — the yearly return of the date on which an important event happened.
+
+- We celebrated our wedding anniversary with a quiet dinner.
+- The company marked its tenth anniversary with a special event.
+
+15\. Announce — to make information known publicly or formally.
+
+- The company will announce the results next Monday.
+- She announced her decision to accept the job offer.
+
+16\. Announcement — a public or formal statement that makes information known.
+
+- The school made an announcement about the examination schedule.
+- I received an announcement confirming the interview date.
+
+17\. Announcer — a person who introduces or presents information on radio, television, or at public events.
+
+- The announcer introduced the next speaker.
+- A sports announcer described the final moments of the match.
+
+18\. Annoy — to irritate or bother someone.
+
+- It annoys me when people interrupt during meetings.
+- The constant noise from the construction site annoyed the residents.
+
+19\. Annual — happening once every year; calculated or paid for a year.
+
+- The company holds an annual meeting in December.
+- My annual salary includes a performance bonus.
+
+20\. Annually — once a year or every year.
+
+- The organization publishes its financial report annually.
+- Employees receive an annual review of their performance.
+
+21\. Antagonism — active hostility, opposition, or conflict between people or groups.
+
+- Years of antagonism made cooperation between the departments difficult.
+- The negotiations reduced the antagonism between the two sides.
+
+22\. Antagonist — an opponent or adversary; a character who opposes the main character in a story.
+
+- The hero faces a powerful antagonist in the final chapter.
+- During the debate, his main antagonist challenged every proposal.
+
+23\. Antarctic — relating to Antarctica or the region around the South Pole.
+
+- Scientists are studying how Antarctic ice is changing.
+- Few plants can survive the harsh Antarctic climate.
+
+24\. Antibiotic — a medicine that kills or inhibits bacteria; relating to such medicines.
+
+- The doctor prescribed an antibiotic for the confirmed bacterial infection.
+- Antibiotic resistance makes some bacterial infections harder to treat.
+
+25\. Anticipate — to expect something before it happens; to prepare for or act ahead of a likely event.
+
+- We anticipate a high number of applications this year.
+- The team prepared extra server capacity to anticipate increased traffic.
+
+26\. Anticipation — the feeling of expecting something; preparation or expectation before an event.
+
+- The children waited in anticipation for the school trip.
+- In anticipation of heavy demand, the store ordered additional stock.
+
+27\. Antique — an old object, especially furniture or art, valued for its age, rarity, or craftsmanship; old-fashioned in some contexts.
+
+- They bought an antique clock at the auction.
+- The shop specializes in antique furniture from the nineteenth century.
+
+## Quick distinctions to remember
+
+- Analysis vs. analyze vs. analytical: Analysis is the noun, analyze is the verb, and analytical is the adjective.
+- Announce vs. announcement vs. announcer: To announce is the action; an announcement is the statement; an announcer is the person presenting information.
+- Annual vs. annually: Annual is an adjective (annual report); annually is an adverb (published annually).
+- Amuse vs. animate: Amuse means entertain; animate means give movement or energy.
+- Antagonism vs. antagonist: Antagonism is hostility or opposition; an antagonist is the opponent.
+- Anticipate vs. anticipation: Anticipate means expect or prepare for something; anticipation is the feeling or state of expecting it.
+- Antarctic vs. antique: Antarctic relates to the South Pole; antique describes an old, often valuable object.
+- Analogy vs. analysis: An analogy explains something through comparison; an analysis examines something in detail.
+- Antibiotic: Antibiotics work against bacteria, not viruses; they should be used according to appropriate medical advice.
+
+# Page 10 — Vocabulary (Antonym → Appreciative)
+
+1\. Antonym — a word that has the opposite meaning of another word.
+
+- “Hot” is an antonym of “cold.”
+- Learning antonyms can help you express contrasts more precisely.
+
+2\. Anxiety — a feeling of worry, nervousness, or unease, often about something uncertain.
+
+- He felt anxiety before his first job interview.
+- Financial anxiety can make it difficult to concentrate on other tasks.
+
+3\. Anxious — worried or uneasy about something uncertain; eager or keen to do or receive something.
+
+- I'm anxious about the results of my examination.
+- She is anxious to begin her new job.
+
+4\. Anyhow — in any case; regardless; in whatever way is possible.
+
+- The weather was terrible, but we went to the event anyhow.
+- I don't know exactly how the machine works, but I'll try to fix it anyhow.
+
+5\. Apart — separated by distance or time; individually or separately; except when used in expressions such as apart from.
+
+- The two offices are only a few meters apart.
+- Apart from English, he also speaks Turkish and German.
+
+6\. Ape — to imitate someone or something, often by copying their behavior or style; a primate such as a gorilla or chimpanzee.
+
+- Some influencers ape the style of famous celebrities.
+- The zoo's ape enclosure includes several chimpanzees.
+
+7\. Apologize — to express regret for a mistake, offense, or inconvenience.
+
+- I apologized to my colleague for sending the wrong file.
+- You should apologize if your words hurt someone.
+
+8\. Apology — an expression of regret for a mistake or offense; a statement explaining or defending an action, sometimes inadequately.
+
+- She offered a sincere apology for missing the meeting.
+- His so-called apology sounded more like an excuse than an admission of responsibility.
+
+9\. Apparatus — a set of equipment or a device designed for a particular purpose; an organized system of equipment or institutions.
+
+- The laboratory apparatus must be cleaned after each experiment.
+- The country's administrative apparatus manages public services.
+
+10\. Apparent — clearly visible or seeming to be true, although the full facts may be uncertain.
+
+- The damage to the car was immediately apparent.
+- It became apparent that we needed more time to finish the project.
+
+11\. Appeal — an earnest request; a formal request to reconsider a decision; attractiveness or interest; to attract or interest someone.
+
+- The lawyer filed an appeal against the court's decision.
+- The flexible working hours appeal to many job seekers.
+
+12\. Appealing — attractive, interesting, or likely to make someone want something.
+
+- The company offered an appealing salary and benefits package.
+- The idea of working remotely is appealing to many professionals.
+
+13\. Appendix — a section at the end of a book or report containing additional information; an organ attached to the large intestine.
+
+- The detailed statistics are included in the report's appendix.
+- The surgeon explained that the patient's appendix needed to be removed.
+
+14\. Appetite — a desire for food; a strong desire for an activity or experience.
+
+- I usually have a healthy appetite after exercising.
+- She has a strong appetite for learning new technical skills.
+
+15\. Applaud — to clap to show approval; to praise or express support for an action or achievement.
+
+- The audience applauded after the performance.
+- I applaud the company for improving its environmental policies.
+
+16\. Appliance — a device, usually electrical, used for a specific household or office task.
+
+- We bought a new kitchen appliance to save time.
+- Always unplug an electrical appliance before cleaning it, when appropriate.
+
+17\. Applicable — relevant or suitable for a particular situation; able to be applied.
+
+- This discount is applicable to online purchases only.
+- The same safety rules are applicable to all employees.
+
+18\. Applicant — a person who formally applies for a job, course, benefit, or other opportunity.
+
+- Every applicant must submit a CV and cover letter.
+- The company interviewed ten applicants for the position.
+
+19\. Application — a formal request for something; the act of putting a method, idea, or skill into use; a computer program.
+
+- I submitted my application for the scholarship yesterday.
+- The practical application of machine learning can improve business decisions.
+
+20\. Apply — to make a formal request; to put something into use; to be relevant; to spread or place something on a surface.
+
+- I plan to apply for three data analyst positions this week.
+- Apply the cream gently to the affected area.
+
+21\. Appoint — to officially choose someone for a position or responsibility.
+
+- The director appointed her as the new team leader.
+- A committee was appointed to investigate the complaint.
+
+22\. Appointment — an arrangement to meet someone at a particular time; the act of officially assigning someone to a position.
+
+- I have a doctor's appointment at 3 p.m.
+- His appointment as department manager was announced yesterday.
+
+23\. Appreciable — large or noticeable enough to be recognized or measured.
+
+- The new system produced an appreciable improvement in performance.
+- There was no appreciable difference between the two results.
+
+24\. Appreciate — to be grateful for something; to recognize the value or importance of something; to increase in value.
+
+- I appreciate your help with the interview preparation.
+- The value of the property has appreciated over the past five years.
+
+25\. Appreciation — gratitude; recognition of value or quality; understanding or enjoyment of something.
+
+- I want to express my appreciation for your support.
+- The course gave me a better appreciation of data visualization.
+
+26\. Appreciative — feeling or showing gratitude, recognition, or understanding of someone's value or effort.
+
+- The manager was appreciative of the team's hard work.
+- The audience was appreciative of the speaker's clear explanation.
+
+## Quick distinctions to remember
+
+- Anxiety vs. anxious: Anxiety is the noun for worry; anxious is the adjective. You feel anxiety or feel anxious.
+- Apologize vs. apology: Apologize is the verb; an apology is the expression of regret.
+- Apparent vs. applicable: Apparent means visible or seemingly true; applicable means relevant or suitable.
+- Appeal vs. appealing: An appeal can be a request, challenge, or attraction; appealing describes something attractive or interesting.
+- Applicant vs. application: An applicant is the person; an application is the request they submit.
+- Apply vs. appoint: To apply is to request a position or use something; to appoint is to officially select someone for a role.
+- Appointment vs. appoint: An appointment is a scheduled meeting or official assignment; appoint is the act of choosing someone.
+- Appreciate vs. appreciative vs. appreciation: Appreciate is the verb; appreciative is the adjective; appreciation is the noun.
+- Appreciable vs. appreciative: Appreciable means noticeable or measurable; appreciative means grateful or recognizing value.
+- Apparatus vs. appliance: Apparatus often refers to equipment or a system used for a specialized purpose; an appliance is typically a device for a household or office task.
+
+# Page 11 — Vocabulary (Apprentice → Armour)
+
+1\. Apprentice — a person who learns a trade or profession by working under an experienced person; a beginner learning practical skills.
+
+- The apprentice learned how to repair electrical equipment from an experienced technician.
+- As an apprentice developer, she worked on small tasks before taking responsibility for larger projects.
+
+2\. Approach — to move closer to someone or something; a method or way of dealing with a situation; to begin discussing or dealing with something.
+
+- Please approach the reception desk when you arrive.
+- We need a different approach to solving this technical problem.
+
+3\. Appropriate — suitable or proper for a particular situation; to take or allocate something for a specific purpose, sometimes without permission.
+
+- Please wear appropriate clothing for the interview.
+- The government appropriated additional funds for public transportation.
+
+4\. Approval — agreement or permission; an official acceptance or favorable judgment.
+
+- The project cannot begin without the manager's approval.
+- Her application received approval from the scholarship committee.
+
+5\. Approve — to accept or authorize something; to consider someone or something good or satisfactory.
+
+- The director approved the proposed budget.
+- My parents approve of my decision to study abroad.
+
+6\. Approximate — close to the actual amount, number, or value; to come close to something in quality or nature.
+
+- The approximate cost of the repair is 2,000 pounds.
+- The model approximates the behavior of the real system.
+
+7\. Approximately — nearly, but not exactly; about.
+
+- The journey takes approximately three hours.
+- Approximately 200 people attended the conference.
+
+8\. Apt — suitable or appropriate; likely to do something; quick to learn or understand.
+
+- “A challenging opportunity” is an apt description of the role.
+- She is an apt student who learns new software quickly.
+
+9\. Aptitude — a natural ability or capacity to learn or perform a particular activity.
+
+- He has a strong aptitude for mathematics and programming.
+- The assessment measures candidates' aptitude for problem-solving.
+
+10\. Arbitrary — based on personal choice, impulse, or chance rather than a clear reason or consistent rule.
+
+- The manager set an arbitrary deadline without consulting the team.
+- The system should follow clear criteria rather than arbitrary decisions.
+
+11\. Arbitrator — an independent person chosen to resolve a dispute and make a decision outside the ordinary court process.
+
+- The two companies appointed an arbitrator to settle their disagreement.
+- The arbitrator reviewed the evidence before making a final decision.
+
+12\. Arc — a curved line or part of a circle; a curved path or progression.
+
+- Draw an arc between the two points on the diagram.
+- The ball followed a high arc before landing near the goal.
+
+13\. Arch — a curved structure spanning an opening; a curved shape resembling such a structure.
+
+- The old stone bridge has a beautiful central arch.
+- The entrance was decorated with a large floral arch.
+
+14\. Archaeology — the study of past human societies through material remains such as tools, buildings, and artifacts.
+
+- Archaeology helps researchers understand how ancient civilizations lived.
+- She studied archaeology to learn more about early human settlements.
+
+15\. Architect — a professional who designs buildings and often oversees aspects of their construction; a person who designs a complex system or plan.
+
+- The architect designed an energy-efficient office building.
+- She was the architect of the company's digital transformation strategy.
+
+16\. Architecture — the art and practice of designing buildings; the structure and organization of a computer system or other complex system.
+
+- The city's architecture combines traditional and modern styles.
+- The software architecture separates the application into independent services.
+
+17\. Ardent — showing intense enthusiasm, passion, or devotion.
+
+- He is an ardent supporter of environmental protection.
+- She made an ardent effort to achieve her career goals.
+
+18\. Arduous — requiring a great deal of effort, time, or energy; difficult and tiring.
+
+- Completing the project in one week was an arduous task.
+- The hikers faced an arduous climb up the mountain.
+
+19\. Area — a particular region or space; the size of a surface; a subject or field of activity.
+
+- The apartment has a small seating area near the window.
+- Data analysis is an area in which I want to develop my skills.
+
+20\. Arena — a venue for sports or public events; a field of activity, competition, or debate.
+
+- Thousands of fans gathered inside the arena for the match.
+- Social media has become an important arena for public debate.
+
+21\. Argue — to disagree or debate; to give reasons or evidence in support of a position.
+
+- They argued about how to divide the project tasks.
+- The researcher argued that the results supported the original hypothesis.
+
+22\. Arise — to emerge, begin, or become noticeable; to get up or rise, in more formal usage.
+
+- If any technical problems arise, contact the support team.
+- Several questions arose during the discussion.
+
+23\. Aristocracy — the highest social class, traditionally consisting of hereditary nobles; a privileged ruling group.
+
+- The aristocracy held considerable political power in the past.
+- The novel explores the decline of the old European aristocracy.
+
+24\. Aristocrat — a member of the aristocracy, traditionally someone of noble birth or high social rank.
+
+- The aristocrat inherited a large estate from his family.
+- The historical drama follows the life of a young aristocrat.
+
+25\. Arithmetic — the branch of mathematics concerned with basic numerical operations such as addition, subtraction, multiplication, and division.
+
+- Children learn arithmetic before studying more advanced mathematics.
+- Basic arithmetic is useful when checking invoices and budgets.
+
+26\. Armour — protective covering worn by people or used on vehicles to defend against weapons or damage; a protective layer or defense, literally or figuratively.
+
+- The medieval knight wore heavy armour into battle.
+- The vehicle was fitted with armour to protect its occupants.
+
+## Quick distinctions to remember
+
+- Apprentice vs. applicant: An apprentice learns a trade through practical training; an applicant requests a job, course, or opportunity.
+- Approach vs. appropriate: An approach is a method or way of moving closer; appropriate means suitable. Appropriate can also mean to allocate something for a purpose.
+- Approve vs. approval: Approve is the verb; approval is the noun.
+- Approximate vs. approximately: Approximate is an adjective or verb; approximately is an adverb.
+- Apt vs. aptitude: Apt describes someone or something as suitable or quick to learn; aptitude is a natural ability.
+- Arc vs. arch: An arc is a curved line or part of a circle; an arch is usually a curved structure or shape spanning an opening.
+- Architect vs. architecture: An architect designs; architecture refers to the design or structure itself.
+- Argue vs. arise: To argue is to debate or present reasons; to arise is to emerge or occur.
+- Aristocracy vs. aristocrat: The aristocracy is the social class; an aristocrat is an individual member of it.
+- Arduous vs. arbitrary: Arduous means difficult and demanding; arbitrary means based on choice or chance rather than a clear reason.
+
+# Page 12 — Vocabulary (Arms → Assignment)
+
+1\. Arms — weapons considered collectively; the official symbols or heraldic designs of a family, institution, or country.
+
+- The soldiers were ordered to lay down their arms.
+- The university's coat of arms appears on its official documents.
+
+2\. Arouse — to awaken a feeling, interest, or reaction; to wake someone from sleep.
+
+- The documentary aroused public interest in climate change.
+- The loud noise aroused me from sleep.
+
+3\. Arrange — to organize or put things in order; to plan or make preparations for something.
+
+- Please arrange the files by date before sending them.
+- I arranged a meeting with the hiring manager for Monday.
+
+4\. Arrangement — an organized order or structure; a plan or agreement; the process of organizing something.
+
+- The seating arrangement allowed everyone to see the presentation.
+- We made arrangements for our guests to stay overnight.
+
+5\. Array — an impressive or organized collection of things; to arrange things in a particular order or display.
+
+- The website offers an array of courses for beginners.
+- The technician arrayed the tools neatly across the workbench.
+
+6\. Arrest — to take someone into legal custody; to stop or slow a process; to attract and hold attention.
+
+- The police arrested the suspect after investigating the incident.
+- The new treatment may help arrest the progression of the disease.
+
+7\. Arrogance — an attitude of excessive pride or an exaggerated belief in one's own importance or superiority.
+
+- His arrogance made it difficult for colleagues to work with him.
+- Confidence is valuable, but arrogance can damage professional relationships.
+
+8\. Arrogant — behaving as though you are more important, intelligent, or capable than other people.
+
+- The arrogant manager refused to listen to his employees.
+- She sounded arrogant when she dismissed everyone's suggestions without considering them.
+
+9\. Article — a piece of writing published in a newspaper, magazine, or website; an individual item or object; a grammatical word such as a, an, or the.
+
+- I read an article about the future of artificial intelligence.
+- Each article in the online store has a unique identification number.
+
+10\. Artificial — made by humans rather than occurring naturally; not genuine or natural.
+
+- The room was decorated with artificial flowers.
+- Artificial intelligence can help businesses analyze large amounts of data.
+
+11\. Ascend — to move upward or climb; to rise to a higher position or level.
+
+- We ascended the stairs to reach the conference room.
+- She ascended to a senior management position after years of hard work.
+
+12\. Ascertain — to discover or establish something with certainty, usually through investigation or checking.
+
+- We need to ascertain the cause of the system failure.
+- Please ascertain whether the payment has been received.
+
+13\. Ascribe — to attribute something to a particular cause, person, or source; to regard a quality as belonging to someone or something.
+
+- Researchers ascribed the improvement to better training.
+- People often ascribe his success to his determination.
+
+14\. Ashamed — feeling embarrassed or guilty because of something wrong or inappropriate that you have done.
+
+- I felt ashamed of the way I spoke to my colleague.
+- She was ashamed that she had failed to keep her promise.
+
+15\. Aside — to one side or away from the main area; separately or for a particular purpose; except for something.
+
+- Please move the boxes aside to clear the doorway.
+- I set aside an hour every evening to study Turkish.
+
+16\. Aspect — one particular part or feature of something; a way of considering or viewing a situation.
+
+- Communication is an important aspect of leadership.
+- We examined every aspect of the proposal before making a decision.
+
+17\. Aspirin — a medicine used to relieve pain and reduce fever and inflammation; it can also help prevent certain blood clots when medically indicated.
+
+- She took aspirin for her headache after checking that it was suitable for her.
+- The doctor explained why low-dose aspirin might be appropriate in his particular case.
+
+18\. Assassination — the deliberate killing of an important or prominent person, usually for political or ideological reasons.
+
+- The assassination of the leader changed the country's political history.
+- The documentary examines the events surrounding the assassination.
+
+19\. Assault — a physical attack or an act of threatening or attempting to harm someone; in law, its precise meaning varies by jurisdiction.
+
+- The victim reported the assault to the police.
+- The suspect was charged with assault after the incident.
+
+20\. Assemble — to put parts together; to gather people into one place or group.
+
+- The technician assembled the computer from individual components.
+- All employees assembled in the conference room for the announcement.
+
+21\. Assembly — a group of people gathered for a purpose; a formal meeting; the process of putting parts together.
+
+- The school held an assembly to recognize outstanding students.
+- Final assembly of the product takes place at the factory.
+
+22\. Assert — to state something confidently or firmly; to defend or exercise one's rights or authority.
+
+- She asserted that the figures in the report were incorrect.
+- Employees should be able to assert their rights respectfully.
+
+23\. Assess — to evaluate or judge the quality, value, importance, or condition of something.
+
+- The interviewer assessed each candidate's communication skills.
+- We need to assess the risks before launching the product.
+
+24\. Assessment — the process of evaluating something; a judgment or estimate resulting from that process; an amount determined to be payable, such as a tax assessment.
+
+- The course includes an assessment of students' practical skills.
+- The property assessment determined the value used to calculate local taxes.
+
+25\. Assign — to give someone a task or responsibility; to allocate something; to designate something for a particular purpose.
+
+- The manager assigned the report to a junior analyst.
+- Each customer was assigned a unique account number.
+
+26\. Assignment — a task or piece of work given to someone; the act of allocating or transferring something; the appointment of someone to a particular role.
+
+- I completed my university assignment before the deadline.
+- Her assignment to the international project required her to travel abroad.
+
+## Quick distinctions to remember
+
+- Arms vs. armour: Arms are weapons; armour is protective covering against weapons.
+- Arrange vs. arrangement: Arrange is the verb; arrangement is the noun for the organization, plan, or result.
+- Array vs. arrangement: An array is often a collection or display of things; an arrangement emphasizes how things are organized or planned.
+- Arrest vs. assault: Arrest can mean taking someone into legal custody or stopping something; assault means an attack or legally defined threatening conduct.
+- Arrogance vs. arrogant: Arrogance is the noun describing excessive pride; arrogant is the adjective describing a person or behavior.
+- Article vs. assignment: An article is a piece of writing or an individual item; an assignment is a task or allocated responsibility.
+- Ascend vs. arise: Ascend means move upward; arise means emerge, occur, or become apparent.
+- Ascertain vs. assess: Ascertain means find out or establish what is true; assess means evaluate or judge.
+- Ascribe vs. assert: Ascribe means attribute something to a cause or person; assert means state or defend something confidently.
+- Assemble vs. assembly: Assemble is the verb for gathering people or putting parts together; assembly is the gathering or the process itself.
+- Assess vs. assessment: Assess is the verb; assessment is the noun.
+- Assign vs. assignment: Assign is the verb for allocating work or responsibility; assignment is the task or allocation.
+- Aside vs. set aside: Aside means to one side; set aside means reserve something for later use or a particular purpose.
+- Arouse vs. arise: Arouse means cause a feeling or reaction; arise means emerge or happen.
+
+---
