@@ -1709,3 +1709,812 @@ Practice challenge: Fill in the blanks without looking back.
 - Arouse vs. arise: Arouse means cause a feeling or reaction; arise means emerge or happen.
 
 ---
+
+# Page 13 — Vocabulary (Assist → Attack)
+
+1\. Assist — to help or support someone in completing a task or achieving a goal.
+
+- Could you assist me with preparing the presentation?
+- The technician assisted the engineer in repairing the equipment.
+
+2\. Assistance — help or support provided to someone who needs it.
+
+- Please contact customer support if you need assistance.
+- The project was completed with assistance from several volunteers.
+
+3\. Assistant — a person who helps someone with their work or responsibilities; a person or thing that provides support.
+
+- The manager asked her assistant to schedule the interviews.
+- A virtual assistant can help organize your calendar and reminders.
+
+4\. Associate — to connect one person, idea, or thing with another; to work together with someone; a colleague or partner in some contexts.
+
+- People often associate this brand with high-quality products.
+- She works as an associate at a consulting firm.
+
+5\. Association — a connection between people, ideas, or things; an organized group formed for a shared purpose.
+
+- There is a strong association between regular exercise and better health.
+- He joined a professional association for software engineers.
+
+6\. Assorted — consisting of different types or varieties.
+
+- The shop sells assorted chocolates in decorative boxes.
+- We received assorted documents from different departments.
+
+7\. Assortment — a collection containing different types or varieties of things.
+
+- The supermarket offers a wide assortment of fresh fruit.
+- The training program covers an assortment of technical skills.
+
+8\. Assume — to accept something as true without proof; to take on a responsibility or role; to begin to have a quality or appearance.
+
+- Don't assume that everyone understands the instructions.
+- She will assume responsibility for managing the new project.
+
+9\. Assumption — something accepted as true without sufficient proof; the act of taking on a role or responsibility.
+
+- Our plan was based on the assumption that costs would remain stable.
+- His assumption of leadership helped the team regain direction.
+
+10\. Assurance — a promise or statement intended to remove doubt; confidence or certainty.
+
+- The company gave us assurance that the data would remain confidential.
+- She spoke with assurance during the interview.
+
+11\. Assure — to tell someone confidently that something is true or will happen; to guarantee or make something certain.
+
+- I assure you that your application has been received.
+- Regular backups help assure the safety of important files.
+
+12\. Assured — confident and self-possessed; guaranteed or made certain.
+
+- She sounded assured when explaining her solution.
+- The contract provides an assured payment under the stated conditions.
+
+13\. Astonish — to surprise someone greatly.
+
+- The student's rapid progress astonished the teacher.
+- It astonished me that the small team completed the project so quickly.
+
+14\. Astound — to shock or surprise someone very strongly, often because something is extraordinary.
+
+- The discovery astounded scientists around the world.
+- The amount of money spent on the project astounded the public.
+
+15\. Astray — away from the correct path or direction; mistaken or no longer following the right course.
+
+- We took a wrong turn and wandered astray in the forest.
+- The team went astray when it stopped following its original objectives.
+
+16\. Astronomer — a scientist who studies stars, planets, galaxies, and other objects in space.
+
+- The astronomer used a telescope to observe a distant planet.
+- An astronomer may study how stars form and evolve.
+
+17\. Astronomical — relating to astronomy; extremely large in size, amount, or degree.
+
+- The observatory offers courses in astronomical research.
+- The company faced astronomical costs after the unexpected delay.
+
+18\. Astronomy — the scientific study of celestial objects, space, and the universe.
+
+- My interest in astronomy began when I saw Saturn through a telescope.
+- Astronomy helps scientists understand the formation and evolution of galaxies.
+
+19\. Athlete — a person who trains for and competes in sports or other physical activities.
+
+- The athlete trained every morning before the competition.
+- Every athlete on the team must follow the coach's instructions.
+
+20\. Atlas — a collection of maps, often published as a book or digital resource; a reference collection of charts or tables.
+
+- We used a world atlas to locate the country.
+- The medical atlas contains detailed diagrams of the human body.
+
+21\. Atmosphere — the gases surrounding a planet; the mood or feeling of a place or situation.
+
+- Earth's atmosphere protects life from much of the Sun's harmful radiation.
+- The café has a relaxed atmosphere that makes it ideal for studying.
+
+22\. Atom — the smallest unit of a chemical element that retains that element's chemical properties; an extremely tiny amount in figurative use.
+
+- A water molecule contains hydrogen and oxygen atoms.
+- There wasn't an atom of truth in the rumor.
+
+23\. Atomic — relating to atoms; involving or produced by changes in atomic nuclei, as in atomic energy or atomic weapons; extremely small in figurative use.
+
+- Scientists studied the atomic structure of the material.
+- The country developed atomic energy for electricity generation.
+
+24\. Attach — to fasten or connect something to another thing; to include a file with an email; to form an emotional connection.
+
+- Please attach the receipt to your expense report.
+- Don't forget to attach your CV when you send the application.
+
+25\. Attachment — a file sent with an email or added to a document; a physical accessory or additional part; an emotional bond.
+
+- The email contained an attachment with the meeting agenda.
+- She has a strong emotional attachment to her childhood home.
+
+26\. Attack — to use physical force against someone or something; to criticize strongly; an attempt to damage or gain unauthorized access to a computer system.
+
+- The dog may attack if it feels threatened.
+- The security team detected a cyberattack against the company's network.
+
+27\. Attain — to achieve, reach, or gain something through effort or development.
+
+- She worked hard to attain her professional goals.
+- The company hopes to attain a higher level of customer satisfaction.
+
+## Quick distinctions to remember
+
+- Assist vs. assistance vs. assistant: Assist is the verb; assistance is the help provided; an assistant is a person or tool that helps.
+- Associate vs. association: Associate can mean connect or refer to a colleague; association is a connection or organized group.
+- Assorted vs. assortment: Assorted describes a variety of things; an assortment is the collection itself.
+- Assume vs. assumption: To assume is to accept something without proof; an assumption is the belief being accepted.
+- Assure vs. assurance vs. assured: Assure means to give confidence or certainty; assurance is the promise or confidence; assured describes someone confident or something guaranteed.
+- Astonish vs. astound: Both mean surprise greatly. Astound often suggests an especially powerful or extraordinary reaction.
+- Astronomy vs. astronomer vs. astronomical: Astronomy is the science; an astronomer is the scientist; astronomical is the adjective and can also mean extremely large.
+- Atom vs. atomic: An atom is a unit of an element; atomic describes something related to atoms or atomic processes.
+- Attach vs. attachment: Attach is the action; an attachment is something added, connected, or emotionally bonded.
+- Atmosphere: In science, it means the gases surrounding a planet; in everyday speech, it often means the mood of a place.
+- Attack vs. attain: To attack is to assault or criticize; to attain is to achieve or reach a goal.
+
+# Page 14 — Vocabulary (Attempt → Automobile)
+
+1\. Attempt — an effort to do or achieve something; to try to do something.
+
+- I made an attempt to solve the problem before asking for help.
+- She attempted to contact the recruiter by email.
+
+2\. Attend — to be present at an event or place; to take care of someone or something; to pay attention to something.
+
+- I will attend the training session tomorrow.
+- A nurse attended to the injured passenger.
+
+3\. Attendance — the act of being present at an event, class, or workplace; the number of people present.
+
+- Regular attendance is required to complete the course.
+- The conference had an attendance of more than 500 people.
+
+4\. Attendant — a person whose job is to help or serve others; accompanying or connected with something.
+
+- The parking attendant showed us where to leave the car.
+- The job involves long hours and the attendant responsibilities of managing a team.
+
+5\. Attention — the act of focusing on something; notice, interest, or care given to someone or something.
+
+- Please pay attention to the safety instructions.
+- The new product attracted the attention of several investors.
+
+6\. Attentive — paying close attention; considerate and responsive to other people's needs.
+
+- The attentive student took detailed notes during the lecture.
+- The hotel staff were attentive to every guest's needs.
+
+7\. Attic — a space or room directly below the roof of a building, often used for storage.
+
+- We keep old photographs and books in the attic.
+- The attic was converted into a small home office.
+
+8\. Attitude — a person's way of thinking, feeling, or behaving toward something; a physical position or orientation.
+
+- A positive attitude can help you handle workplace challenges.
+- The aircraft changed its attitude as it began to descend.
+
+9\. Attorney — a lawyer; a person legally authorized to act for another person in certain matters.
+
+- She consulted an attorney before signing the contract.
+- His attorney handled the legal paperwork on his behalf.
+
+10\. Attract — to draw someone or something toward you; to gain someone's interest or attention.
+
+- Bright flowers attract bees and butterflies.
+- The company offers flexible hours to attract talented employees.
+
+11\. Attraction — something that draws interest or visitors; the quality of being appealing; a feeling of interest or affection.
+
+- The ancient temple is a major tourist attraction.
+- One attraction of the job is the opportunity to work remotely.
+
+12\. Attribute — a quality or characteristic of someone or something; to regard something as caused by or belonging to someone or something.
+
+- Reliability is an important attribute of a good engineer.
+- The researchers attributed the improvement to better training.
+
+13\. Auction — a public sale in which items are sold to the highest bidder; to sell something in this way.
+
+- The painting was sold at auction for a record price.
+- The company decided to auction its old office equipment.
+
+14\. Audience — a group of people watching or listening to a performance, speech, or broadcast; the people a piece of content is intended for.
+
+- The audience applauded at the end of the presentation.
+- Before writing the report, identify your target audience.
+
+15\. Auditorium — a large room or hall where people gather to watch performances, hear speeches, or attend events.
+
+- The graduation ceremony will take place in the main auditorium.
+- Hundreds of students filled the auditorium for the lecture.
+
+16\. August — impressive, dignified, or worthy of respect and admiration; also the name of the eighth month of the year.
+
+- The historic palace had an august appearance.
+- The university will announce the final results in August.
+
+17\. Author — a person who writes a book, article, or other work; to create or originate something.
+
+- The author discussed her new book at the library.
+- He authored a report on the effects of automation.
+
+18\. Authority — the power or right to make decisions or enforce rules; an official organization or person with expertise in a subject.
+
+- Only the department head has the authority to approve the request.
+- The health authority issued new safety guidelines.
+
+19\. Authorization — official permission or legal power to do something.
+
+- You need written authorization to access these records.
+- The payment was declined because the bank could not verify the authorization.
+
+20\. Authorize — to officially give permission or power to someone to do something.
+
+- The director authorized the purchase of new computers.
+- Only authorized staff may access the server room.
+
+21\. Autobiography — the story of a person's life written by that person.
+
+- She published her autobiography after retiring from politics.
+- His autobiography describes the challenges he faced early in his career.
+
+22\. Automate — to make a process operate automatically, often using machines or software instead of manual work.
+
+- We automated the monthly reporting process with Python.
+- The factory plans to automate several repetitive tasks.
+
+23\. Automatic — operating by itself with little or no direct human control; happening without conscious thought.
+
+- The doors open automatically when someone approaches.
+- He gave an automatic response before realizing what the question meant.
+
+24\. Automation — the use of machines, software, or control systems to perform tasks with reduced human intervention.
+
+- Automation has reduced the time needed to process invoices.
+- The company invested in automation to improve production efficiency.
+
+25\. Automobile — a motor vehicle designed mainly to carry people on roads; a car.
+
+- She drives an automobile to work every day.
+- The automobile industry is investing heavily in electric vehicles.
+
+## Quick distinctions to remember
+
+- Attempt vs. attend: To attempt is to try; to attend is to be present or take care of something.
+- Attend vs. attendance: Attend is a verb; attendance is the noun for being present or the number of people present.
+- Attendant vs. attention: An attendant is a person who assists; attention is the focus or notice given to something.
+- Attitude vs. attribute: Attitude is a way of thinking or behaving; an attribute is a characteristic or quality.
+- Attract vs. attraction: Attract is the verb; attraction is the noun for something appealing or something that draws interest.
+- Audience vs. auditorium: An audience is the group of people; an auditorium is the hall where they gather.
+- Author vs. autobiography: An author writes a work; an autobiography is a person's life story written by that person.
+- Authority vs. authorization vs. authorize: Authority is the power or right; authorization is the permission; authorize is the act of granting permission.
+- Automate vs. automatic vs. automation: Automate is the verb; automatic is the adjective; automation is the process or system.
+
+# Page 15 — Vocabulary (Autonomous → Axle)
+
+1\. Autonomous — independent and able to govern or operate without outside control.
+
+- The region became autonomous and gained control over its local affairs.
+- The company is testing autonomous vehicles that can navigate without a human driver.
+
+2\. Autonomy — independence or the right to govern oneself; the ability to make decisions without outside control.
+
+- The university gives researchers considerable autonomy over their projects.
+- The region is seeking greater political autonomy.
+
+3\. Auxiliary — providing additional help or support; a supplementary person, device, or system.
+
+- The hospital installed an auxiliary power system for emergencies.
+- Auxiliary staff helped the main team prepare for the event.
+
+4\. Avail — to help or benefit someone, usually in the expression avail oneself of or to no avail.
+
+- You can avail yourself of the free training resources on the website.
+- We tried several solutions, but to no avail.
+
+5\. Available — ready for use; obtainable; free to meet, work, or be contacted.
+
+- The report is available on the company's website.
+- Are you available for a meeting on Thursday?
+
+6\. Avenge — to take action in response to a wrong or injury, seeking to punish the person responsible or restore honor.
+
+- The hero vowed to avenge his brother's death.
+- She wanted to avenge the injustice done to her family.
+
+7\. Avenue — a broad road or street; a way or method of approaching a goal or opportunity.
+
+- The hotel is located on a tree-lined avenue.
+- Further education may provide an avenue to a better career.
+
+8\. Average — the usual or typical level; the result obtained by adding values and dividing by their number; to have a particular average.
+
+- The average employee spends several hours a week in meetings.
+- The team averaged 80 sales per day last month.
+
+9\. Aviation — the design, development, operation, and use of aircraft; the science and practice of flying.
+
+- Aviation has transformed international travel.
+- She is interested in working in aviation technology.
+
+10\. Avoid — to stay away from someone or something; to prevent something undesirable from happening.
+
+- I avoid checking my phone while studying.
+- Regular maintenance can help avoid unexpected equipment failures.
+
+11\. Aware — having knowledge or understanding of something.
+
+- Are you aware of the new application deadline?
+- Employees should be aware of the company's data protection policy.
+
+12\. Awe — a powerful feeling of wonder, respect, or sometimes fear in response to something impressive or overwhelming.
+
+- We stood in awe of the enormous mountains.
+- The young researcher felt awe when she entered the historic library.
+
+13\. Awful — extremely bad, unpleasant, or distressing; causing fear or dread in some contexts.
+
+- The traffic was awful, so I arrived late.
+- I felt awful after realizing that I had sent the wrong document.
+
+14\. Awkward — difficult to handle or manage; uncomfortable, embarrassing, or lacking smoothness.
+
+- It was awkward to discuss the mistake in front of the whole team.
+- The large box was awkward to carry up the stairs.
+
+15\. Awkwardly — in an uncomfortable, clumsy, or embarrassed manner.
+
+- He smiled awkwardly when he forgot the interviewer's name.
+- She awkwardly lifted the heavy suitcase into the car.
+
+16\. Axis — an imaginary or real line around which something rotates; a central line used as a reference in mathematics or diagrams.
+
+- Earth rotates around its axis.
+- Label the horizontal axis of the chart with the years.
+
+17\. Axle — a shaft or rod that supports a rotating wheel or connects wheels in a vehicle.
+
+- The mechanic replaced the damaged axle.
+- The rear axle helps support the vehicle and transfer driving forces to the wheels.
+
+## Quick distinctions to remember
+
+- Autonomous vs. autonomy: Autonomous is an adjective describing independence; autonomy is the noun for that independence.
+- Auxiliary vs. autonomous: Auxiliary means additional or supportive; autonomous means independent.
+- Available vs. avail: Available describes something ready or accessible; avail appears in expressions about using an opportunity or having a result.
+- Avenge vs. avoid: To avenge is to retaliate for a wrong; to avoid is to stay away from something or prevent it.
+- Avenue vs. axis: An avenue is a street or route toward a goal; an axis is a central or reference line.
+- Average: As a noun, it can mean a calculated mean; as an adjective, it can mean typical or ordinary; as a verb, it can describe a mean value over time.
+- Awful vs. awkward: Awful means very bad or unpleasant; awkward means uncomfortable, clumsy, or difficult to handle.
+- Axis vs. axle: An axis is a line of rotation or reference; an axle is a physical shaft associated with wheels.
+
+# Page 16 — Vocabulary (Baby-sitter → Bang)
+
+1\. Baby-sitter — a person who takes care of children temporarily while their parents or usual caregivers are away.
+
+- We hired a baby-sitter for Saturday evening.
+- The baby-sitter prepared dinner for the children before their parents returned.
+
+2\. Bachelor — an unmarried man; a first university degree, usually called a bachelor's degree.
+
+- He remained a bachelor until he was in his forties.
+- She earned a bachelor's degree in computer engineering.
+
+3\. Backbone — the spine; the main support or most important part of something.
+
+- The doctor examined his backbone after the accident.
+- Small businesses form the backbone of the local economy.
+
+4\. Backward — directed toward the back; less advanced than expected; reluctant to accept new ideas; in the direction opposite to forward movement.
+
+- Take one step backward so everyone can fit into the photograph.
+- The company fell backward in its progress because it refused to adopt new technology.
+
+5\. Bacon — meat from a pig, usually cured and often smoked, commonly served in thin slices.
+
+- He ordered eggs and bacon for breakfast.
+- The recipe uses crispy bacon to add flavor to the salad.
+
+6\. Bacterium — a single-celled microorganism without a nucleus; the singular form of bacteria.
+
+- A bacterium can multiply rapidly under suitable conditions.
+- The laboratory identified the bacterium responsible for the infection.
+
+7\. Badge — a small object or symbol worn or displayed to identify someone or show membership, rank, or achievement.
+
+- Visitors must wear an identification badge inside the building.
+- She earned a digital badge after completing the online course.
+
+8\. Badminton — a sport in which players use rackets to hit a shuttlecock over a net.
+
+- We play badminton at the sports center every Friday.
+- Badminton requires quick reactions and good coordination.
+
+9\. Baffle — to confuse someone completely; to prevent or obstruct movement or progress.
+
+- The unusual test result baffled the researchers.
+- The engineers installed a baffle to reduce the flow of air inside the machine.
+
+10\. Baggage — the bags and suitcases carried while traveling; emotional problems or beliefs carried from past experiences, figuratively.
+
+- The airline lost our baggage during the connecting flight.
+- He needed to deal with emotional baggage from his previous relationship.
+
+11\. Bait — food or another substance used to attract or catch an animal; something used to tempt or provoke someone.
+
+- We used worms as bait when we went fishing.
+- The scammer sent a tempting offer as bait to steal people's personal information.
+
+12\. Bake — to cook food using dry heat, usually in an oven.
+
+- I baked a loaf of bread this morning.
+- You should bake the cake for about thirty minutes.
+
+13\. Balance — a stable or equal condition; the ability to remain steady; the remaining amount in an account; to keep something stable or equal.
+
+- Regular exercise can improve your balance.
+- I checked my bank balance before making the purchase.
+
+14\. Balcony — a platform that projects from the outside wall of a building, usually with a railing.
+
+- We had breakfast on the hotel balcony.
+- The apartment has a small balcony overlooking the garden.
+
+15\. Bald — having little or no hair on the head; lacking the usual covering or detail.
+
+- He started going bald in his early thirties.
+- The report gave only a bald summary of the results without explaining the reasons.
+
+16\. Ballet — a form of dance characterized by precise movements, technique, and often formal theatrical performances.
+
+- My sister has studied ballet since she was six.
+- We bought tickets to see a classical ballet at the theater.
+
+17\. Balloon — a flexible bag filled with air or another gas; to increase rapidly in size, cost, or amount as a verb.
+
+- The children released a red balloon into the sky.
+- The project's costs began to balloon after several unexpected delays.
+
+18\. Ballroom — a large room designed for formal dancing and social events.
+
+- The hotel hosted the wedding reception in its grand ballroom.
+- The charity organized a formal dinner in the ballroom.
+
+19\. Bamboo — a fast-growing plant in the grass family, with strong, often hollow stems.
+
+- The pandas ate bamboo throughout the morning.
+- The furniture was made from lightweight bamboo.
+
+20\. Band — a group of musicians; a group of people; a strip or ring of material; to join or unite, usually in band together.
+
+- The band performed live at the festival.
+- The volunteers banded together to clean the neighborhood.
+
+21\. Bandage — a strip of material used to cover or support an injured part of the body; to cover an injury with such material.
+
+- The nurse wrapped a bandage around his wrist.
+- She bandaged the cut before returning to work.
+
+22\. Bang — a sudden loud noise or forceful blow; a great success in informal expressions such as go with a bang.
+
+- We heard a loud bang coming from the garage.
+- The new product launch went with a bang and attracted hundreds of customers.
+
+## Quick distinctions to remember
+
+- Bachelor vs. bachelor's degree: A bachelor is an unmarried man; a bachelor's degree is an undergraduate academic qualification.
+- Backbone vs. back: The backbone is the spine; back refers more broadly to the rear part of the body or something behind.
+- Bacterium vs. bacteria: Bacterium is singular; bacteria is plural.
+- Baffle vs. baffled: To baffle is to confuse; baffled describes someone who is confused.
+- Baggage vs. luggage: Both mean travel bags and suitcases. Baggage is especially common in airline contexts; luggage is common in general travel contexts.
+- Bait vs. baiting: Bait can be a lure or the act of tempting someone; baiting often describes deliberately provoking someone.
+- Bake vs. cook: Bake uses dry heat, usually in an oven; cook is the broader term for preparing food.
+- Balance vs. balanced: Balance is a noun or verb; balanced describes something stable, fair, or well-proportioned.
+- Band vs. bandage: A band can be a group or strip; a bandage is material used to cover or support an injury.
+- Bang vs. balloon: A bang is a loud noise or blow; balloon is an inflatable object or a verb meaning to grow rapidly.
+
+# Page 17 — Vocabulary (Banker → Bazaar)
+
+1\. Banker — a person who works in banking, manages a bank, or owns or leads a banking business; in gambling, the person or organization holding and managing the money.
+
+- The banker explained the different mortgage options to the customer.
+- She met with a banker to discuss a business loan.
+
+2\. Bankrupt — legally unable to pay debts under applicable insolvency law; financially ruined or unable to meet financial obligations in everyday use.
+
+- The company went bankrupt after several years of declining sales.
+- Poor financial decisions left the business nearly bankrupt.
+
+3\. Banner — a long strip of fabric or another material displaying a message; a prominent headline or graphic used to attract attention.
+
+- Volunteers carried a banner calling for cleaner streets.
+- The website displayed a banner advertising its new service.
+
+4\. Banquet — a large, formal meal held for a celebration or special occasion.
+
+- The organization hosted a banquet to honor its retiring employees.
+- Guests gathered for a wedding banquet at the hotel.
+
+5\. Bar — a place where drinks are served; a long, narrow piece of material; a counter or establishment serving food and drinks; to prevent or prohibit something.
+
+- We met at a quiet bar near the station.
+- The new regulation may bar companies from using that method.
+
+6\. Barber — a person whose job is to cut men's hair and often shave or trim beards.
+
+- I need to visit the barber before the interview.
+- The barber trimmed his beard and gave him a short haircut.
+
+7\. Bare — uncovered or without clothing; lacking something usual or necessary; to reveal or expose something.
+
+- He walked barefoot on the bare floor.
+- The investigation helped bare the truth about the financial misconduct.
+
+8\. Barely — only just; almost not; by a very small amount.
+
+- I barely caught the last bus home.
+- The company barely made a profit this quarter.
+
+9\. Bargain — an agreement between people or organizations, especially about a purchase; something bought at a good price; to negotiate a price or agreement.
+
+- I bought this laptop at a bargain price.
+- We bargained with the seller until we agreed on a fair price.
+
+10\. Barge — a large, usually flat-bottomed boat used to transport goods, often on rivers or canals; to move into a place abruptly or rudely in the expression barge in.
+
+- The barge carried construction materials along the river.
+- Please knock before you barge into someone's office.
+
+11\. Bark — the sharp sound a dog makes; the outer covering of a tree; to speak in a loud, abrupt manner.
+
+- The dog began to bark when someone approached the gate.
+- The manager barked an order at the workers.
+
+12\. Barn — a farm building used to store crops, animal feed, equipment, or house livestock.
+
+- The farmer stored the hay in the barn.
+- The old barn was converted into a workshop.
+
+13\. Barometer — an instrument that measures atmospheric pressure; something used as an indicator of conditions or trends.
+
+- The meteorologist checked the barometer before forecasting the weather.
+- Consumer confidence can serve as a barometer of economic conditions.
+
+14\. Baron — a title of nobility in some countries; a powerful or influential person in a particular industry, often used in compounds such as media baron.
+
+- The baron owned a large estate in the countryside.
+- The media baron controlled several major newspapers.
+
+15\. Barrel — a large cylindrical container, often made of wood or metal; a rounded cylindrical part of a machine or weapon.
+
+- The winery stored its wine in oak barrels.
+- The mechanic replaced the damaged barrel of the industrial machine.
+
+16\. Barren — unable to produce plants or crops; infertile; empty, unproductive, or lacking useful results.
+
+- Very little grows on the barren land.
+- Despite months of discussion, the negotiations produced barren results.
+
+17\. Barrier — something that blocks movement, access, or progress; an obstacle that makes something difficult.
+
+- A security barrier prevented vehicles from entering the restricted area.
+- Language can be a barrier to effective communication.
+
+18\. Barter — to exchange goods or services directly without using money.
+
+- In some communities, people barter vegetables for household goods.
+- The two businesses bartered services instead of exchanging cash.
+
+19\. Baseball — a team sport played with a bat and ball; the ball used in that sport.
+
+- My cousins play baseball every weekend.
+- The pitcher threw the baseball toward home plate.
+
+20\. Basement — the lowest floor of a building, partly or entirely below ground level; often used for storage or utilities.
+
+- We keep our old furniture in the basement.
+- The building's basement contains the electrical and heating equipment.
+
+21\. Basin — a bowl-shaped container for holding water or other substances; a large area of land drained by a river system; a natural or artificial body of water.
+
+- She filled the basin with warm water.
+- The Amazon basin contains an extensive network of rivers.
+
+22\. Bathe — to wash or soak the body in water; to cover or surround something with light or another substance.
+
+- I like to bathe in warm water after a long day.
+- The morning sunlight bathed the room in a golden glow.
+
+23\. Batter — to strike repeatedly and forcefully; a mixture of flour, liquid, and other ingredients used for cooking.
+
+- Strong winds battered the coast overnight.
+- Dip the vegetables in batter before frying them.
+
+24\. Battery — a device that stores and supplies electrical energy; a series or set of similar items or tests; in law, the unlawful physical use of force against another person in jurisdictions that distinguish it from assault.
+
+- My phone's battery needs charging.
+- The candidate completed a battery of aptitude tests.
+
+25\. Bay — a part of a sea or lake partly enclosed by land; a designated section of a building or structure.
+
+- We spent the afternoon swimming in the bay.
+- Park the vehicle in the loading bay behind the warehouse.
+
+26\. Bazaar — a market, often with many stalls or small shops, especially one associated with Middle Eastern or South Asian traditions; a sale or event where goods are sold to raise money.
+
+- We bought spices and handmade crafts at the bazaar.
+- The school organized a charity bazaar to raise funds for local families.
+
+## Quick distinctions to remember
+
+- Banker vs. bankrupt: A banker works in or manages banking; bankrupt describes someone or a business that cannot meet its financial obligations, often under formal insolvency proceedings.
+- Banner vs. bar: A banner displays a message; a bar can be a counter, establishment, or long narrow object, and the verb bar means prohibit.
+- Bare vs. barely: Bare means uncovered or lacking; barely means only just or almost not.
+- Bargain vs. barter: A bargain is an agreement or good-value purchase; to barter is to exchange goods or services without money.
+- Barge vs. barge in: A barge is a type of boat; barge in means enter abruptly or rudely.
+- Bark vs. bark (tree): A dog's bark is its sound; a tree's bark is its outer covering.
+- Barometer vs. thermometer: A barometer measures atmospheric pressure; a thermometer measures temperature.
+- Barren vs. barrier: Barren describes land or something unproductive; a barrier is an obstacle.
+- Basin vs. bay: A basin can be a container or a land area drained by rivers; a bay is an area of water partly enclosed by land.
+- Batter vs. battery: Batter can mean strike repeatedly or a cooking mixture; a battery stores electrical energy or refers to a set of tests.
+- Banquet vs. bazaar: A banquet is a formal meal; a bazaar is a market or fundraising sale.
+
+# Page 18 — Vocabulary (Bead → Betray)
+
+1\. Bead — a small piece of material, often pierced so it can be threaded onto a string; a small drop of liquid, such as sweat.
+
+- She made a bracelet using colorful glass beads.
+- A bead of sweat rolled down his forehead during the workout.
+
+2\. Beak — the hard, projecting mouth of a bird, used for eating and other activities.
+
+- The bird used its beak to crack open the seed.
+- The parrot gently tapped the cage with its beak.
+
+3\. Beam — a ray of light; a long, strong piece of wood or metal used to support a structure; to smile broadly or transmit a signal, as a verb.
+
+- A beam of sunlight entered the room through the window.
+- The workers installed a steel beam to support the roof.
+
+4\. Bean — a seed or edible pod from certain plants; a plant of the legume family.
+
+- I added beans to the salad for extra protein.
+- She grows green beans in her garden every summer.
+
+5\. Bear — to tolerate or endure; to carry or support; to give birth; an animal belonging to the bear family.
+
+- I can't bear the noise from the construction site.
+- The bridge must bear the weight of heavy vehicles.
+
+6\. Bearing — a person's posture or manner; the act of carrying or supporting; patience under difficulty; a mechanical part that reduces friction between moving components.
+
+- Despite the pressure, she maintained a calm and confident bearing.
+- The technician replaced the worn bearing in the machine.
+
+7\. Beat — to strike repeatedly; to defeat someone; to move rhythmically; a regular rhythm or pulse.
+
+- The rain beat against the windows all night.
+- Our team beat its strongest competitor in the final match.
+
+8\. Become — to begin to be or grow into something; to suit or look good on someone, in formal or literary usage.
+
+- She hopes to become a software engineer.
+- That blue jacket becomes you; it looks very good on you.
+
+9\. Beforehand — earlier than a particular time or event; in advance.
+
+- Please send me the meeting agenda beforehand.
+- I prepared my answers beforehand so I would feel more confident during the interview.
+
+10\. Behalf — the interests or benefit of a person or group, usually in the phrase on behalf of.
+
+- I am writing on behalf of the entire department.
+- She accepted the award on behalf of her colleagues.
+
+11\. Behave — to act or conduct oneself in a particular way, especially in a socially acceptable manner.
+
+- Please behave professionally during the interview.
+- The software behaves differently when the input data is missing.
+
+12\. Behavior — the way a person, animal, or system acts or responds in particular situations.
+
+- The teacher praised the students for their respectful behavior.
+- Researchers studied customer behavior to understand purchasing patterns.
+
+13\. Belly — the front part of the body between the chest and the pelvis; the stomach area, in everyday speech.
+
+- The child laughed as the puppy rolled onto its belly.
+- He felt a sharp pain in his belly after eating too quickly.
+
+14\. Beloved — deeply loved or cherished; a person who is dearly loved.
+
+- The beloved teacher retired after thirty years at the school.
+- She wrote a letter to her beloved before leaving the country.
+
+15\. Below — in a lower position than something; lower in rank, level, or amount; further down in a document or text.
+
+- The parking garage is below the office building.
+- Please read the instructions listed below.
+
+16\. Bend — to curve or cause something to curve; to lean or turn the body; a curved part of a road or river.
+
+- Bend your knees when lifting a heavy box.
+- The road takes a sharp bend just beyond the bridge.
+
+17\. Beneath — under or below something; hidden or concealed by something; less worthy or appropriate than someone or something, in certain expressions.
+
+- The keys were beneath the pile of papers.
+- Beneath his confident appearance, he was nervous about the interview.
+
+18\. Beneficial — helpful or advantageous; producing a positive effect.
+
+- Regular exercise is beneficial to both physical and mental well-being.
+- The new training program was beneficial to employees across the company.
+
+19\. Beneficiary — a person or organization that receives benefits, money, or property from a will, insurance policy, trust, or other arrangement.
+
+- She named her daughter as the beneficiary of her life insurance policy.
+- The charity was the beneficiary of the company's donation.
+
+20\. Benefit — an advantage or positive result; financial or practical support provided to someone; to help or improve something, as a verb.
+
+- One benefit of remote work is reduced commuting time.
+- The new software will benefit employees by reducing repetitive tasks.
+
+21\. Benevolent — kind, generous, and willing to help others.
+
+- A benevolent donor funded the local children's library.
+- The organization is known for its benevolent work in poor communities.
+
+22\. Bent — curved or not straight; strongly determined to do something, usually in the phrase bent on; a natural inclination or talent in the phrase a bent for.
+
+- The mechanic replaced the bent metal rod.
+- He is bent on proving that the new approach will work.
+
+23\. Besides — in addition to; apart from or except for; moreover, used to introduce another reason.
+
+- Besides English, she speaks Turkish and German.
+- I don't want to go out; besides, I have work to finish.
+
+24\. Bestow — to give or present something, especially an honor, gift, or title, often formally.
+
+- The university bestowed an award on the outstanding researcher.
+- The organization bestowed honorary membership on its founding director.
+
+25\. Bet — to risk money or something valuable on an outcome; to be confident that something is likely to happen, as in I bet.
+
+- He placed a bet on the winning team.
+- I bet you'll enjoy working with the new team.
+
+26\. Betray — to be disloyal to someone; to reveal information that should remain secret; to unintentionally reveal a feeling or quality.
+
+- He betrayed his friend's trust by sharing the private messages.
+- Her nervous expression betrayed her concern about the results.
+
+## Quick distinctions to remember
+
+- Bead vs. beak: A bead is a small object used in jewelry or crafts; a beak is a bird's mouth.
+- Beam vs. bearing: A beam is a ray of light or a structural support; bearing can describe posture or refer to a mechanical component.
+- Bear vs. bare: Bear can mean endure or carry; bare means uncovered or lacking a covering.
+- Bear vs. beat: To bear is to endure or support; to beat is to strike or defeat.
+- Become vs. behave: Become means begin to be or suit someone; behave means act or respond in a particular way.
+- Beforehand vs. behalf: Beforehand means in advance; on behalf of means representing someone or acting in their interests.
+- Below vs. beneath: Both can mean under or lower than something. Beneath can sound more formal or emphasize something being covered or hidden.
+- Beneficial vs. benefit vs. beneficiary: Beneficial is an adjective meaning helpful; benefit is an advantage or the verb meaning help; a beneficiary is someone who receives a benefit.
+- Benevolent vs. beloved: Benevolent describes someone kind and generous; beloved describes someone who is deeply loved.
+- Bent vs. bend: Bend is the verb meaning curve or cause to curve; bent is its past form or an adjective meaning curved or determined.
+- Besides vs. beside: Besides means in addition to or moreover; beside means next to.
+- Bargain vs. bet: A bargain is an agreement or good-value purchase; a bet involves risking something on an uncertain outcome.
+- Bestow vs. betray: To bestow is to give or grant something; to betray is to be disloyal or reveal something confidential.
+
+---
