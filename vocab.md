@@ -2518,3 +2518,806 @@ Practice challenge: Fill in the blanks without looking back.
 - Bestow vs. betray: To bestow is to give or grant something; to betray is to be disloyal or reveal something confidential.
 
 ---
+# PAGE 19
+
+1\. Beverage — A drink, especially one other than water.
+
+- Tea is my favorite hot beverage in the morning.
+- The hotel offers complimentary beverages to all guests.
+
+2\. Bewilder — To confuse someone completely or make them unsure what to do.
+
+- The complicated instructions bewildered the new employee.
+- I was bewildered by the maze of streets in the old city.
+
+3\. Bias — An unfair preference or tendency that affects impartial judgment; to influence someone unfairly.
+
+- The interviewer tried to avoid bias when evaluating the candidates.
+- Personal opinions can bias the results of a study.
+
+4\. Bid — To offer a price for something; to express a greeting, wish, or farewell.
+
+- Three companies submitted a bid for the construction project.
+- She bid her colleagues farewell before leaving the office.
+
+5\. Bill — A statement of money owed; a proposed law; a list of items or services.
+
+- Could you bring me the bill, please?
+- Parliament is expected to debate the new environmental bill.
+
+6\. Billion — One thousand million (1,000,000,000).
+
+- The company is worth several billion dollars.
+- The video received over a billion views worldwide.
+
+7\. Bind — To tie or fasten something; to restrict someone; to stick together.
+
+- Please bind these documents together with a clip.
+- The contract binds both parties to the agreed terms.
+
+8\. Biographer — A person who writes an account of another person's life.
+
+- The biographer spent years researching the scientist's childhood.
+- A famous biographer was invited to speak at the university.
+
+9\. Biography — A written account of a person's life.
+
+- I read a biography of Nelson Mandela last year.
+- Her biography describes the challenges she overcame in her career.
+
+10\. Biologist — A scientist who studies living organisms.
+
+- The biologist studied how plants respond to drought.
+- A marine biologist examined the effects of pollution on coral reefs.
+
+11\. Bite — To cut or grip with the teeth; to sting or cause a sharp sensation; a small amount of food.
+
+- The dog tried to bite the stranger's shoe.
+- This sauce has a sharp, spicy bite.
+
+12\. Bitter — Having a sharp, unpleasant taste; deeply resentful or painful.
+
+- The medicine left a bitter taste in my mouth.
+- He felt bitter about being unfairly dismissed from his job.
+
+13\. Bitterness — Strong resentment, anger, or hostility; a sharp, unpleasant taste.
+
+- Years of bitterness made it difficult for them to reconcile.
+- The bitterness of the dark chocolate balanced its sweetness.
+
+14\. Blacksmith — A craftsperson who heats, hammers, and shapes iron or steel.
+
+- The blacksmith made a metal gate by hand.
+- We watched a blacksmith shape a horseshoe in his workshop.
+
+15\. Blade — The flat part of a leaf; the cutting edge of a tool or weapon.
+
+- Each blade of grass was covered with morning dew.
+- The knife's blade was too dull to cut the rope.
+
+16\. Blame — To hold someone responsible for something wrong; responsibility for a fault.
+
+- Don't blame your teammates for your own mistake.
+- The report placed the blame on poor management.
+
+17\. Blank — Empty or unmarked; without expression or understanding.
+
+- Please write your answer in the blank space.
+- When the teacher asked me the question, my mind went blank.
+
+18\. Blanket — A large, warm covering used on a bed; to cover something completely or apply something broadly.
+
+- I wrapped myself in a blanket because the room was cold.
+- The new policy introduced a blanket ban on smoking indoors.
+
+19\. Blast — A powerful explosion or gust of air; to explode or produce a loud burst of sound.
+
+- The blast shattered several windows.
+- A blast of cold air came through the open door.
+
+20\. Blaze — A large, bright fire; to burn brightly or intensely.
+
+- Firefighters worked all night to control the blaze.
+- The sun blazed down on the empty road.
+
+21\. Bleach — To make something lighter or remove its color, often using chemicals.
+
+- She used bleach to remove the stains from the white towels.
+- Strong sunlight can bleach the color out of fabric.
+
+22\. Bleed — To lose or release blood; to lose something gradually, especially money or resources.
+
+- His finger began to bleed after he cut it.
+- The company continued to bleed money because of poor management.
+
+23\. Blend — To mix things together; a mixture of different ingredients or elements.
+
+- Blend the fruit with milk until the mixture is smooth.
+- The restaurant serves a special blend of coffee beans.
+
+24\. Bless — To give divine favor or protection; to bring happiness or good fortune.
+
+- The priest asked God to bless the newly married couple.
+- We are blessed to have such supportive friends.
+
+25\. Blessing — Divine favor or protection; something beneficial or a source of happiness; an expression of approval.
+
+- They prayed for God's blessing before the journey.
+- Having reliable internet access is a blessing when working remotely.
+
+26\. Blink — To close and open the eyes quickly; a brief moment.
+
+- She blinked several times in the bright sunlight.
+- In the blink of an eye, the opportunity was gone.
+
+27\. Block — To obstruct movement or access; to prevent something from happening; to sketch or organize roughly.
+
+- A fallen tree blocked the road.
+- The website blocked my account after several failed login attempts.
+
+28\. Bloom — A flower or flowering state; to develop or flourish.
+
+- The roses are in full bloom this week.
+- Her confidence began to bloom after she gained more experience.
+
+29\. Blaze — A large, intense fire; a bright or conspicuous display. (Repeated from the list's earlier fire-related vocabulary.)
+
+- A blaze destroyed several buildings in the industrial area.
+- The athlete blazed a trail for younger competitors.
+
+## Quick distinctions to remember
+
+- Beverage vs. refreshment: A beverage is a drink; refreshments can include drinks and light food.
+- Bewilder vs. confuse: Both mean to make someone uncertain, but bewilder often suggests greater confusion.
+- Bias vs. blame: Bias is an unfair preference; blame assigns responsibility for a problem.
+- Bid vs. offer: A bid is a formal or competitive offer, often involving a price.
+- Bill vs. invoice: An invoice requests payment for goods or services; bill has additional meanings, including a proposed law.
+- Biography vs. biographer: A biography is the book; a biographer writes it.
+- Bitter vs. bitterness: Bitter is an adjective; bitterness is a noun.
+- Blade vs. edge: A blade is the flat or cutting part of a tool; its edge is the sharpened boundary.
+- Blank vs. empty: Blank often means unmarked; empty means containing nothing.
+- Blast vs. blaze: A blast is an explosion or powerful burst; a blaze is a large fire.
+- Bleach vs. bleed: Bleach removes color; bleed means to lose blood or, figuratively, resources.
+- Blend vs. mixture: Blend can mean the act of mixing or the resulting combination; mixture usually refers to the combined substances.
+- Blessing vs. benefit: A blessing can mean divine favor or something fortunate; a benefit is an advantage.
+- Blink vs. wink: A blink is usually an ordinary, brief closing of the eyes; a wink is typically deliberate and often communicates a message.
+- Bloom vs. blossom: Both relate to flowering; blossom also commonly refers to a flower itself or figuratively to development.
+
+# PAGE 20
+
+1\. Blossom — The flower of a plant, especially one with colorful or noticeable petals; to develop successfully.
+
+- The apple trees are covered in pink blossoms.
+- Her talent began to blossom when she joined the research team.
+
+2\. Blot — A spot or stain, especially one made by ink; something that damages a reputation.
+
+- A blot of ink appeared on the document.
+- The scandal became a blot on the company's reputation.
+
+3\. Blunder — A serious or careless mistake.
+
+- I made a blunder by sending the email to the wrong person.
+- The manager's financial blunder cost the company thousands of dollars.
+
+4\. Blunt — Not sharp; direct in a way that may seem insensitive.
+
+- This knife is too blunt to cut the vegetables properly.
+- She was blunt about the problems with his proposal.
+
+5\. Blush — To become red in the face, often because of embarrassment or shyness; a reddish color.
+
+- He began to blush when everyone praised him.
+- A soft blush appeared on her cheeks.
+
+6\. Board — A flat piece of material used for a purpose; a group responsible for supervising an organization; to get onto a vehicle or ship.
+
+- Write your ideas on the whiteboard.
+- The board approved the company's annual budget.
+
+7\. Boarding — The act of getting onto a ship, plane, or other transport; accommodation that includes meals.
+
+- Boarding begins thirty minutes before departure.
+- The university offers boarding for students who live far away.
+
+8\. Boast — To talk with excessive pride about one's achievements or possessions; a source of pride.
+
+- He likes to boast about how much money he earns.
+- The museum boasts an impressive collection of ancient artifacts.
+
+9\. Bodyguard — A person employed to protect another person from danger.
+
+- The celebrity arrived with two bodyguards.
+- A bodyguard escorted the official through the crowd.
+
+10\. Boil — To heat a liquid until it bubbles and produces vapor; to cook in boiling liquid; to become extremely angry or excited.
+
+- Boil the water before adding the pasta.
+- She was boiling with anger after hearing the accusation.
+
+11\. Bold — Brave and willing to take risks; very noticeable; sometimes impudent or overly confident.
+
+- It was a bold decision to start a business during the recession.
+- He wore a bold red jacket to the interview.
+
+12\. Bolt — To run away suddenly; to move suddenly; a metal fastener.
+
+- The frightened horse bolted across the field.
+- Please tighten the bolt that holds the chair together.
+
+13\. Bond — A connection between people or things; a binding agreement; a financial instrument representing a loan.
+
+- Working together helped the team develop a strong bond.
+- The government issued bonds to raise money for infrastructure.
+
+14\. Bonus — Extra money, a reward, or an additional benefit beyond what is normally expected.
+
+- Employees received a bonus for meeting their annual targets.
+- The hotel includes free airport transportation as a bonus.
+
+15\. Bookcase — A piece of furniture with shelves for storing books.
+
+- I bought a bookcase for my home office.
+- The old bookcase was filled with history books.
+
+16\. Boom — A period of rapid growth or prosperity; a loud, deep sound; to grow or expand rapidly.
+
+- The technology sector experienced a major boom.
+- Business began to boom after the company launched its new product.
+
+17\. Booming — Growing rapidly and successfully; producing a deep, loud, resonant sound.
+
+- Renewable energy is a booming industry.
+- We heard a booming voice coming from the stage.
+
+18\. Boost — To increase, improve, or encourage something; an increase or source of support.
+
+- The new campaign helped boost sales.
+- Getting positive feedback gave me a boost in confidence.
+
+19\. Booth — A small enclosed space or temporary stall used for a particular activity.
+
+- We visited the company's booth at the technology exhibition.
+- She sat in a booth near the restaurant window.
+
+20\. Border — The edge of something; a line separating places or areas.
+
+- They planted flowers along the border of the garden.
+- We crossed the border into another country.
+
+21\. Bore — To make a hole using a drill or similar tool; to make someone feel uninterested.
+
+- The workers bored a hole through the concrete wall.
+- Long, repetitive meetings bore him.
+
+22\. Boring — Not interesting or exciting; dull.
+
+- The lecture was so boring that several students fell asleep.
+- He finds routine paperwork boring.
+
+23\. Bother — To annoy, trouble, or worry someone; to make an effort to do something, often in a negative expression.
+
+- The constant noise bothers me when I am trying to study.
+- Don't bother printing the document; a digital copy is enough.
+
+24\. Bounce — To spring back after hitting a surface; to move with repeated springing movements; to reject a payment.
+
+- The ball bounced off the wall.
+- My rent payment bounced because there wasn't enough money in my account.
+
+25\. Bound — Tied or restricted; certain or required to do something; a limit; to leap or move energetically.
+
+- The package was bound with strong rope.
+- We are bound by the terms of the agreement.
+
+26\. Boundary — A line or limit that separates areas, properties, or acceptable behavior.
+
+- A fence marks the boundary between the two properties.
+- Setting clear boundaries helps maintain a healthy working relationship.
+
+## Quick distinctions to remember
+
+- Blossom vs. bloom: Both refer to flowering or development; blossom is especially common for individual flowers and figurative growth.
+- Blot vs. blunder: A blot is a stain or something that harms a reputation; a blunder is a serious mistake.
+- Blunt vs. bold: Blunt can describe something unsharp or a very direct person; bold describes courage or something striking.
+- Board vs. boarding: A board can be a flat surface or committee; boarding usually refers to getting onto transport or accommodation with meals.
+- Boast vs. boost: To boast is to speak proudly about yourself; to boost is to increase or improve something.
+- Boom vs. booming: Boom can be a noun or verb; booming often describes rapid growth or a deep sound.
+- Bore vs. boring: Bore can mean to drill a hole or make someone uninterested; boring describes something uninteresting.
+- Boundary vs. border: Both mark limits; boundary is common for property lines and personal limits, while border often refers to edges or national boundaries.
+- Bolt vs. bounce: To bolt is to flee or move suddenly; to bounce is to spring back after impact.
+- Bound vs. boundary: Bound can mean restricted or tied; a boundary is a dividing line or limit.
+
+# PAGE 21
+
+1\. Bourgeois — Relating to the middle class; sometimes used critically to describe materialistic or conventional attitudes.
+
+- The novel explores the values of the bourgeois middle class.
+- He rejected what he considered a bourgeois obsession with wealth and status.
+
+2\. Bow — To bend the head or body as a sign of respect; the front part of a ship; a curved weapon or a looped knot.
+
+- The audience watched the performers bow at the end of the show.
+- The ship's bow cut through the waves.
+
+3\. Bowl — A round, deep container; to roll a ball, especially in a sport; to move quickly and smoothly.
+
+- She put a bowl of fruit on the table.
+- The children bowled the ball toward the pins.
+
+4\. Boycott — To refuse to buy, use, or participate in something as a form of protest.
+
+- Many customers decided to boycott the company after the scandal.
+- The workers threatened to boycott the meeting.
+
+5\. Brace — A device or support that holds something firmly in place; to prepare for something difficult; a pair or set of two.
+
+- He wore a knee brace after injuring his leg.
+- We braced ourselves for the storm.
+
+6\. Brain — The organ that controls thought and bodily functions; intelligence or the ability to think.
+
+- The brain processes information from the senses.
+- She is the brains behind the company's new strategy.
+
+7\. Brake — A device that slows or stops movement; to slow or stop a vehicle.
+
+- The driver pressed the brake to avoid hitting the cyclist.
+- You should brake gently on a slippery road.
+
+8\. Brand — A product's identifying name or mark; a mark made by burning; a particular type or style.
+
+- Consumers often recognize the brand by its logo.
+- The company developed a brand known for reliable service.
+
+9\. Breach — A violation of a law, agreement, duty, or security; a gap or break in a barrier.
+
+- Sharing confidential information was a breach of the contract.
+- The company reported a security breach that exposed customer data.
+
+10\. Breadth — The measurement from one side to the other; the range or extent of something.
+
+- The table has a breadth of one meter.
+- Her breadth of knowledge makes her an excellent consultant.
+
+11\. Break — To separate into pieces or stop functioning; a pause or opportunity; a sudden change or escape.
+
+- Be careful not to break the glass.
+- Let's take a short break before continuing the meeting.
+
+12\. Breakdown — A failure to function; a collapse in physical or mental health; a detailed analysis or division into parts.
+
+- The car suffered a breakdown on the highway.
+- The report provides a breakdown of expenses by department.
+
+13\. Breakthrough — An important discovery or development that overcomes a major obstacle.
+
+- Researchers made a breakthrough in battery technology.
+- Improved communication led to a breakthrough in the negotiations.
+
+14\. Breath — The air taken into or released from the lungs during breathing; a single act of breathing.
+
+- Take a deep breath before you begin speaking.
+- The cold air made her breath visible.
+
+15\. Breathe — To take air into the lungs and release it.
+
+- Try to breathe slowly when you feel nervous.
+- These lightweight shoes allow your feet to breathe.
+
+16\. Breed — To produce offspring or raise animals; a particular type of animal; to cause something to develop.
+
+- The farmer breeds sheep for their wool.
+- Poor communication can breed distrust within a team.
+
+17\. Breeze — A gentle wind; something done easily or quickly; to move effortlessly.
+
+- A cool breeze came through the open window.
+- After months of practice, the exam felt like a breeze.
+
+18\. Bribe — Money or a gift offered to influence someone dishonestly; to influence someone through such an offer.
+
+- The official was arrested for accepting a bribe.
+- It is illegal to bribe a public official.
+
+19\. Bridle — A set of straps used to control a horse; to react with anger or resentment.
+
+- The rider adjusted the bridle before mounting the horse.
+- She bridled at the suggestion that she was inexperienced.
+
+20\. Brief — Short in duration or length; concise; a summary or document giving essential information.
+
+- The manager gave a brief explanation of the new procedure.
+- Please write a brief summary of your findings.
+
+21\. Brighten — To make or become lighter; to make someone happier or more hopeful.
+
+- Open the curtains to brighten the room.
+- Her encouraging message brightened my day.
+
+22\. Brilliance — Exceptional intelligence, skill, or beauty; intense brightness.
+
+- The scientist's brilliance changed the field of medicine.
+- The brilliance of the stars amazed us.
+
+23\. Brilliant — Extremely intelligent or impressive; shining brightly; vivid or intense.
+
+- She came up with a brilliant solution to the problem.
+- The brilliant sunlight reflected off the water.
+
+24\. Brim — The upper edge or rim of a container or hat; to be completely full.
+
+- He filled the cup to the brim.
+- The hall was brimming with excited visitors.
+
+25\. Brink — The edge of a steep place; the point just before a major event or change.
+
+- The hikers stopped at the brink of the cliff.
+- The company was on the brink of bankruptcy.
+
+26\. Brisk — Quick, energetic, and active; sometimes sharp or businesslike in manner.
+
+- We went for a brisk walk before breakfast.
+- The receptionist gave a brisk reply and returned to work.
+
+## Quick distinctions to remember
+
+- Bourgeois vs. middle-class: Middle-class is generally neutral; bourgeois can carry a critical meaning related to materialism or conventional values.
+- Bow vs. brake: To bow is to bend in respect; a brake slows or stops movement.
+- Boycott vs. bribe: A boycott refuses participation to protest; a bribe offers an improper incentive.
+- Brace vs. bracket: A brace supports or stabilizes something; a bracket can hold something or group information.
+- Brand vs. breed: A brand identifies a product or business; to breed means to produce offspring or cause something to develop.
+- Breach vs. breakthrough: A breach is a violation or gap; a breakthrough is a major advance.
+- Break vs. breakdown: A break can be a pause or a separation; a breakdown is a failure or an analysis into parts.
+- Breath vs. breathe: Breath is a noun; breathe is a verb.
+- Breeze vs. brisk: A breeze is a gentle wind or an easy task; brisk describes quick, energetic movement or activity.
+- Brief vs. brilliant: Brief means short or concise; brilliant means exceptionally clever, impressive, or bright.
+- Brim vs. brink: A brim is the edge of a container or hat; a brink is an edge or a point just before a major event.
+- Brilliance vs. brilliant: Brilliance is a noun; brilliant is an adjective.
+
+# PAGE 22
+
+1\. Brittle — Easily broken, cracked, or damaged; lacking flexibility.
+
+- The old plastic had become brittle in the cold.
+- Her brittle voice suggested that she was close to tears.
+
+2\. Broadcast — A radio or television program or transmission; to transmit a program or information to an audience.
+
+- We watched the live broadcast of the match.
+- The station will broadcast the interview tonight.
+
+3\. Broaden — To make or become wider; to expand the range of knowledge, experience, or understanding.
+
+- The road will broaden near the city center.
+- Traveling abroad can broaden your perspective.
+
+4\. Brochure — A small booklet containing information or advertising, often with pictures.
+
+- The university gave us a brochure describing its degree programs.
+- I picked up a travel brochure at the hotel.
+
+5\. Bronze — A metal alloy made mainly of copper and tin; a brownish metallic color; a third-place medal in many competitions.
+
+- The statue was made of bronze.
+- She won a bronze medal in the swimming competition.
+
+6\. Brood — To think about something unhappily for a long time; a group of young birds hatched together.
+
+- He continued to brood over the criticism instead of moving on.
+- The hen protected her brood from the rain.
+
+7\. Brook — A small stream; to tolerate or allow something, usually in the negative expression will not brook.
+
+- A clear brook ran through the forest.
+- The manager would not brook any dishonesty.
+
+8\. Brown — Having a color between red, yellow, and black; to make food brown through cooking.
+
+- He wore a brown jacket to the interview.
+- Brown the onions before adding the tomatoes.
+
+9\. Bruise — An injury that causes discoloration without breaking the skin; to injure by impact or pressure.
+
+- She had a bruise on her arm after the fall.
+- The heavy box bruised the fruit during transport.
+
+10\. Brutal — Extremely cruel, violent, or harsh; exceptionally difficult or intense.
+
+- The documentary showed the brutal conditions faced by prisoners.
+- We had a brutal workout at the gym.
+
+11\. Brute — An animal, especially one seen as powerful or savage; a cruel or insensitive person; a person or thing relying on force rather than intelligence.
+
+- He behaved like a brute when he shouted at the staff.
+- The team used brute force to open the jammed door.
+
+12\. Bubble — A thin sphere of gas in liquid or air; a rounded transparent covering; an unrealistic or temporary situation.
+
+- Soap bubbles floated through the garden.
+- The investors worried that the housing market was a bubble.
+
+13\. Bucket — A container with a handle used for carrying liquids or other materials; a similar container used in machinery.
+
+- Fill the bucket with water to wash the floor.
+- The excavator uses a large bucket to move soil.
+
+14\. Bud — A developing part of a plant that can grow into a leaf or flower; a person or thing that is not fully developed.
+
+- New buds appeared on the branches in spring.
+- Their friendship began to bud during their first year at university.
+
+15\. Budget — A plan for income and spending; an amount of money allocated for a purpose; to plan how money will be spent.
+
+- I created a monthly budget to control my expenses.
+- We need to budget carefully for the new project.
+
+16\. Buffet — A meal where people serve themselves from a selection of dishes; a table or counter displaying food.
+
+- The hotel offers a breakfast buffet.
+- Guests selected their meals from the buffet.
+
+17\. Bug — An insect or similar small creature; an error in software; to annoy someone.
+
+- A bug landed on the windowsill.
+- The developer fixed a bug in the application.
+
+18\. Bulb — A rounded part of a plant that can grow into a new plant; a rounded glass or plastic covering for an electric light.
+
+- Plant the tulip bulbs before the first frost.
+- The light bulb needs to be replaced.
+
+19\. Bulk — The main or largest part of something; great size or volume.
+
+- The bulk of the work was completed before Friday.
+- Buying supplies in bulk can reduce costs.
+
+20\. Bulky — Large and difficult to carry, store, or handle because of its size.
+
+- The bulky suitcase would not fit in the overhead compartment.
+- The old computer was too bulky for the small desk.
+
+21\. Bull — An adult male bovine; a strong or aggressive person; someone optimistic about a market's future.
+
+- The bull stood behind the fence.
+- Bullish investors expect stock prices to rise.
+
+22\. Bulletin — A short official announcement or report; a regular publication containing news or updates.
+
+- The university issued a bulletin about the examination schedule.
+- Please check the weather bulletin before traveling.
+
+23\. Bullion — Gold or silver in bulk form, especially bars or ingots valued for their metal content.
+
+- The bank stored gold bullion in a secure vault.
+- Investors sometimes buy bullion as a store of value.
+
+24\. Bump — A knock or collision; a raised area on a surface or the body; to hit or move something with a jolt.
+
+- I felt a bump when the car drove over the pothole.
+- He bumped his head against the low ceiling.
+
+25\. Bunch — A group of similar things gathered or tied together; a group of people; a large amount informally.
+
+- She bought a bunch of bananas at the market.
+- A bunch of colleagues went out for lunch.
+
+26\. Bundle — A group of things tied or packaged together; a collection offered together; a large amount of money informally.
+
+- He carried a bundle of newspapers under his arm.
+- The software package includes a bundle of useful tools.
+
+## Quick distinctions to remember
+
+- Brittle vs. fragile: Both mean easily broken; brittle often emphasizes hardness and lack of flexibility.
+- Broadcast vs. brochure: A broadcast transmits information through media; a brochure is a printed or digital information booklet.
+- Broaden vs. expand: Both mean to increase in scope or size; broaden often emphasizes width or range.
+- Brood vs. breed: To brood is to think unhappily or refer to young birds; to breed is to produce offspring.
+- Brook vs. brochure: A brook is a small stream; a brochure is an informational booklet.
+- Bruise vs. blot: A bruise is an injury or discoloration; a blot is a stain or a mark on a reputation.
+- Brutal vs. brute: Brutal is an adjective describing cruelty or severity; brute is a noun for a cruel person or an animal.
+- Bubble vs. bulb: A bubble is a thin sphere of gas or a rounded form; a bulb is a plant structure or light component.
+- Budget vs. bulk: A budget plans money; bulk refers to the main part, large quantity, or volume of something.
+- Bulky vs. bulk: Bulky is an adjective describing something large; bulk is a noun referring to size, volume, or the main part.
+- Bull vs. bullion: A bull is an animal or a market optimist; bullion is precious metal in bulk form.
+- Bunch vs. bundle: A bunch is a group or cluster; a bundle is usually a collection packaged or tied together.
+
+# PAGE 23
+
+1\. Burdensome — Difficult to carry, manage, or endure; causing stress, effort, or fatigue.
+
+- The paperwork became burdensome as the company grew.
+- Caring for several responsibilities at once can feel burdensome.
+
+2\. Bureaucracy — A system of administration involving many rules, procedures, and officials; excessive administrative complexity.
+
+- Starting a business can be difficult because of government bureaucracy.
+- The new system was designed to reduce bureaucracy and speed up approvals.
+
+3\. Burial — The act of placing a dead body in the ground; a ceremony for someone who has died; the act of hiding something underground.
+
+- The family attended the burial on Saturday.
+- Archaeologists discovered the burial site beneath the ancient temple.
+
+4\. Bush — A woody plant smaller than a tree; an area covered with wild shrubs or vegetation.
+
+- A small bird was hiding in the bush.
+- The explorers walked through thick bush in search of water.
+
+5\. Business — Commercial activity; a company or enterprise; a person's responsibility or concern.
+
+- She started her own business after graduating.
+- It's none of your business how I spend my free time.
+
+6\. Butcher — A person who prepares and sells meat; to kill people or animals cruelly or in large numbers; to do something very badly.
+
+- The butcher prepared fresh cuts of meat for the customers.
+- I butchered the pronunciation of that Turkish word during my presentation.
+
+7\. Butter — A soft, fatty food made by churning cream or milk.
+
+- Spread some butter on the warm bread.
+- The recipe calls for two tablespoons of butter.
+
+8\. Butterfly — An insect with broad, often colorful wings; a person who moves among different social groups, as in social butterfly.
+
+- A yellow butterfly landed on the flower.
+- As a social butterfly, she enjoys meeting new people at events.
+
+9\. Buzz — A continuous humming or vibrating sound; excited activity, conversation, or public interest; to make a humming sound.
+
+- I heard the buzz of a mosquito near my ear.
+- The new product created a lot of buzz on social media.
+
+10\. Bygone — Belonging to the past; no longer existing or current.
+
+- The museum displays objects from a bygone era.
+- They met to discuss old disagreements and let bygones be bygones.
+
+11\. Bypass — A route that avoids a congested area; a pipe or circuit that carries something around another part; to avoid or go around a person, rule, or obstacle.
+
+- We took the bypass to avoid traffic in the city center.
+- The technician bypassed the faulty component to test the system.
+
+12\. By-product — A secondary product created during the production of something else; an indirect result of an activity or process.
+
+- Molasses is a by-product of sugar production.
+- Stress can be a by-product of working long hours.
+
+## Quick distinctions to remember
+
+- Burdensome vs. difficult: Both describe something challenging; burdensome emphasizes the weight, strain, or ongoing responsibility involved.
+- Bureaucracy vs. administration: Administration is the general process of managing an organization; bureaucracy often emphasizes formal procedures and layers of officials.
+- Burial vs. funeral: Burial means placing a body in the ground; a funeral is the ceremony honoring the deceased.
+- Bush vs. shrub: Both can refer to small woody plants; bush can also refer to wild, vegetation-covered areas.
+- Business vs. occupation: A business is a commercial activity or enterprise; an occupation is the work someone does.
+- Butcher vs. slaughter: A butcher prepares and sells meat; slaughter means killing animals or people, often in large numbers.
+- Buzz vs. rumor: Buzz is general excitement or discussion; a rumor is an unverified piece of information.
+- Bygone vs. former: Both refer to the past; bygone often describes an earlier era, while former identifies something or someone that previously held a role or status.
+- Bypass vs. avoid: A bypass is often a route or mechanism around something; avoid is the general act of staying away from it.
+- By-product vs. side effect: A by-product is a secondary output or result; a side effect is an additional consequence, often unintended or undesirable.
+
+# PAGE 24
+
+1\. Cab — A taxi; the driver's compartment of a vehicle; historically, a horse-drawn vehicle available for hire.
+
+- We took a cab to the airport.
+- The truck driver climbed into the cab and started the engine.
+
+2\. Cabin — A small room or enclosed space, especially on a ship or boat; a small, simple house, often in a rural or wooded area.
+
+- Our cabin on the ship had a small window overlooking the sea.
+- They rented a wooden cabin in the mountains for the weekend.
+
+3\. Cabinet — A piece of furniture with shelves or compartments; a small enclosed space; a group of senior government ministers.
+
+- Keep the cleaning supplies in the kitchen cabinet.
+- The prime minister met with the cabinet to discuss the new policy.
+
+4\. Cable — A thick, strong rope made from metal wires or other materials; a wire or group of wires used to transmit electricity or data; a message sent by cable.
+
+- The workers used a steel cable to lift the heavy equipment.
+- Connect the monitor to the computer with an HDMI cable.
+
+5\. Cafe — A small restaurant or coffee shop where people can buy drinks and light meals.
+
+- I usually study at a quiet cafe near the university.
+- We stopped at a cafe for coffee and sandwiches.
+
+6\. Cafeteria — A place where people choose their own food and usually pay at a counter.
+
+- Students ate lunch in the university cafeteria.
+- The office cafeteria offers several affordable meal options.
+
+7\. Calculate — To determine a number or result using mathematics; to estimate or plan something carefully.
+
+- Use this formula to calculate the project's total cost.
+- We calculated how much time the new process would save.
+
+8\. Calculation — The process or result of working something out mathematically; careful planning or judgment.
+
+- Check your calculation before submitting the report.
+- Hiring an additional employee was a strategic calculation.
+
+9\. Calendar — A system or chart showing days, weeks, and months; a schedule of planned events.
+
+- I marked the deadline on my calendar.
+- The university published its academic calendar for the coming year.
+
+10\. Calm — Peaceful and free from agitation; a state of quietness; to make or become less upset.
+
+- The sea was calm early in the morning.
+- She took a few deep breaths to calm herself before the interview.
+
+11\. Calorie — A unit used to measure energy, especially the energy supplied by food. In nutrition, a food Calorie usually means one kilocalorie.
+
+- This meal contains approximately 500 calories.
+- The body needs calories to maintain its basic functions.
+
+12\. Campaign — An organized series of activities intended to achieve a goal; a planned military operation; to work actively toward a goal.
+
+- The company launched a campaign to promote its new service.
+- Volunteers campaigned for better public transportation.
+
+13\. Campus — The grounds and buildings of a university or college.
+
+- The university campus has a library, laboratories, and student housing.
+- I met my classmates on campus after the lecture.
+
+14\. Canal — An artificial waterway; a channel or tube that carries fluid through the body or a machine.
+
+- The canal connects the river to the harbor.
+- The bile duct is a canal-like passage that carries bile.
+
+15\. Canary — A small songbird, often yellow; a bright yellow color; a person or thing that gives an early warning of danger, as in a canary in a coal mine.
+
+- The canary sang loudly in its cage.
+- Rising prices can be a canary in a coal mine for wider economic problems.
+
+16\. Cancel — To call off an event or arrangement; to revoke, delete, or invalidate something.
+
+- They had to cancel the meeting because the manager was ill.
+- Please cancel my subscription before the next billing date.
+
+17\. Cancellation — The act of calling off or invalidating something; the event or result of being canceled.
+
+- We received a cancellation notice from the airline.
+- The cancellation of the event disappointed many attendees.
+
+18\. Candid — Honest, direct, and open; expressed frankly without hiding one's opinions.
+
+- I appreciate your candid feedback about my presentation.
+- During the interview, she gave a candid account of the project's difficulties.
+
+19\. Candidate — A person being considered for a position, award, or opportunity; someone seeking election to an office.
+
+- She is a strong candidate for the software engineering role.
+- Each candidate presented their ideas during the election debate.
+
+20\. Cane — A tall plant with a hard, jointed stem; a stick used to help someone walk or, in some contexts, to discipline someone.
+
+- Sugar cane is used to produce sugar.
+- After his injury, he needed a cane to walk comfortably.
+
+21\. Cannon — A large, heavy gun designed to fire powerful projectiles.
+
+- The museum displayed an old cannon from the nineteenth century.
+- The historical film showed soldiers loading a cannon.
+
+## Quick distinctions to remember
+
+- Cab vs. cabin: A cab is usually a taxi or vehicle compartment; a cabin is a small room or building.
+- Cabinet vs. cabinetry: A cabinet is a storage unit or government group; cabinetry refers collectively to cabinets, especially in kitchens.
+- Cable vs. cord: Both can connect or support things; cable often refers to a stronger or more specialized wire or assembly.
+- Cafe vs. cafeteria: A cafe commonly serves coffee and light meals; a cafeteria usually lets customers select food from a serving area.
+- Calculate vs. calculation: Calculate is a verb; calculation is a noun.
+- Calendar vs. schedule: A calendar organizes dates and may list events; a schedule specifies when activities are planned.
+- Calm vs. quiet: Calm emphasizes a lack of agitation; quiet emphasizes a lack of noise or activity.
+- Campaign vs. project: A campaign is a coordinated series of activities toward a goal; a project is a planned piece of work with defined objectives.
+- Campus vs. college: A campus is the physical grounds and buildings; a college is an educational institution or one of its divisions.
+- Canal vs. channel: A canal is often an artificial waterway; a channel is a broader term for a passage that carries water, signals, or information.
+- Cancel vs. cancellation: Cancel is a verb; cancellation is a noun.
+- Candid vs. candidate: Candid means honest and direct; a candidate is someone being considered for something.
+- Cane vs. cannon: A cane is a plant or walking stick; a cannon is a large gun.
+
+---
