@@ -3321,3 +3321,885 @@ Practice challenge: Fill in the blanks without looking back.
 - Cane vs. cannon: A cane is a plant or walking stick; a cannon is a large gun.
 
 ---
+
+# PAGE 25
+
+1\. Canon — An accepted rule or standard; the officially recognized books of the Bible; a body of important literary or artistic works.
+
+- The committee followed the established canon of professional ethics.
+- Many students study Shakespeare as part of the literary canon.
+
+2\. Canteen — A container used for carrying drinking water; a small cafeteria, especially at a school, workplace, or military base.
+
+- The soldier filled his canteen before the long march.
+- We usually eat lunch at the office canteen.
+
+3\. Canvas — A strong, closely woven fabric; a surface used for painting; the background or setting against which events unfold.
+
+- The artist painted a landscape on a large canvas.
+- The documentary provides a broad canvas for understanding the country's history.
+
+4\. Canvass — To ask people for opinions, support, or votes; to examine or discuss something carefully.
+
+- Volunteers canvassed the neighborhood before the election.
+- The committee canvassed several options before making its decision.
+
+5\. Capability — The ability or skill to do something; the capacity to perform a task.
+
+- The software has the capability to analyze large datasets.
+- The company is investing in its employees' technical capabilities.
+
+6\. Capable — Having the ability, skill, or qualities needed to do something.
+
+- She is capable of managing the project independently.
+- This computer is capable of running demanding applications.
+
+7\. Capacity — The ability to do something; the maximum amount a space or system can hold; an official role or function.
+
+- He has the capacity to learn new programming languages quickly.
+- The conference hall has a capacity of 500 people.
+
+8\. Cape — A piece of land extending into a sea or lake; a sleeveless outer garment that hangs from the shoulders.
+
+- The lighthouse stands on a rocky cape.
+- The actor wore a black cape as part of the costume.
+
+9\. Capital — Wealth or assets used for investment; a city where a government is based; a capital letter; something of major importance.
+
+- The company needs more capital to expand its operations.
+- Cairo is the capital of Egypt.
+
+10\. Caption — Text accompanying an image, video, or illustration; a heading or title.
+
+- She added a caption explaining the photograph.
+- The chart's caption describes the data shown below it.
+
+11\. Captive — A person or animal held prisoner; someone unable to leave or escape; someone completely absorbed by something.
+
+- The soldiers released the captives after negotiations.
+- The audience was captive to the speaker's fascinating story.
+
+12\. Capture — To take someone or something by force; to record or represent something; to attract or hold attention.
+
+- The police managed to capture the escaped prisoner.
+- This photograph captures the beauty of the sunset.
+
+13\. Card — A small, flat piece of stiff material used for information, identification, payment, or games.
+
+- I gave the receptionist my business card.
+- She paid for the groceries with a credit card.
+
+14\. Cardinal — Of the greatest importance; a high-ranking official in the Roman Catholic Church; a North American songbird, often red.
+
+- Safety is a cardinal principle of laboratory work.
+- The cardinal wore a red robe during the ceremony.
+
+15\. Career — A person's professional journey or occupation over time.
+
+- She wants to build a career in data science.
+- Learning new skills can help you advance your career.
+
+16\. Careful — Taking precautions to avoid mistakes, danger, or damage; attentive and thorough.
+
+- Be careful when handling the laboratory equipment.
+- She was careful to check every figure in the report.
+
+17\. Careless — Not giving enough attention or thought; failing to take appropriate care.
+
+- A careless mistake caused an error in the calculation.
+- He was careless with confidential information.
+
+18\. Cargo — Goods transported by ship, aircraft, truck, or another vehicle.
+
+- The ship carried a cargo of grain across the sea.
+- The airline inspected the cargo before loading it onto the aircraft.
+
+19\. Carol — A joyful song, especially one associated with Christmas; historically, a festive song or dance.
+
+- The children sang a Christmas carol outside the church.
+- We listened to traditional carols during the holiday season.
+
+20\. Carpenter — A skilled worker who builds, installs, or repairs wooden structures and objects.
+
+- The carpenter built a wooden desk for the office.
+- We hired a carpenter to repair the damaged door.
+
+21\. Carrier — A person, company, or thing that transports people or goods; something that carries or transmits something.
+
+- The shipping carrier delivered the package two days late.
+- Mosquitoes can be carriers of certain diseases.
+
+22\. Carrot — An edible orange root vegetable; figuratively, an incentive offered to encourage behavior.
+
+- I added chopped carrot to the soup.
+- The company offered a bonus as a carrot to encourage higher productivity.
+
+23\. Carry — To transport or hold something while moving; to support or bear a load; to include, convey, or possess something.
+
+- She carried her laptop to the meeting.
+- The report carries important information about the project's risks.
+
+## Quick distinctions to remember
+
+- Canon vs. cannon: A canon is a rule or accepted body of works; a cannon is a large gun.
+- Canvas vs. canvass: Canvas is a strong fabric or painting surface; canvass means to seek opinions, support, or votes.
+- Capability vs. capacity: Capability emphasizes the ability to perform a task; capacity can mean ability, maximum size, or an official role.
+- Capable vs. capability: Capable is an adjective; capability is a noun.
+- Capital vs. capitol: Capital can mean money, a government city, or a capital letter; capitol usually refers to a building where a legislature meets.
+- Captive vs. capture: A captive is someone held prisoner; capture is the act of taking or recording something.
+- Career vs. occupation: An occupation is someone's work; a career often refers to their longer-term professional development.
+- Careful vs. cautious: Both involve avoiding risk; careful also emphasizes attention to detail, while cautious emphasizes avoiding danger.
+- Cargo vs. freight: Both refer to transported goods; cargo is especially common for ship and aircraft loads, while freight is common in shipping and logistics.
+- Carrier vs. courier: A carrier transports people, goods, or substances; a courier specifically delivers messages or packages.
+- Carrot vs. carat: A carrot is a vegetable; a carat measures gemstone weight or, in another usage, the purity of gold.
+
+# PAGE 26
+
+1\. Cart — A vehicle used for carrying goods, usually with two or more wheels; to transport something in a cart.
+
+- The worker pushed a cart full of groceries through the store.
+- They carted the old furniture out of the building.
+
+2\. Carton — A container made of cardboard or similar material, often used for food or drinks.
+
+- I bought a carton of milk from the supermarket.
+- Please put the empty egg carton in the recycling bin.
+
+3\. Cartoon — A humorous or satirical drawing; an animated film or television program.
+
+- The newspaper published a cartoon criticizing the government.
+- My younger brother watches cartoons every Saturday morning.
+
+4\. Carve — To cut or shape a material by removing parts of it, especially wood, stone, or food.
+
+- The artist carved a bird from a piece of wood.
+- He carefully carved the turkey before serving dinner.
+
+5\. Carving — The act or result of shaping something by cutting away material.
+
+- The wooden carving took several weeks to complete.
+- Traditional stone carving requires patience and precision.
+
+6\. Cash — Money in the form of coins and banknotes; to exchange a check for money or convert an asset into cash.
+
+- The shop accepts both cash and credit cards.
+- She cashed the check at her local bank.
+
+7\. Cashier — A person who receives and handles payments in a shop, restaurant, or other business; an employee responsible for managing cash.
+
+- The cashier gave me the correct change.
+- Please ask the cashier for a receipt.
+
+8\. Cassette — A small case containing magnetic tape used to record or play audio or video.
+
+- My father still keeps his old music cassettes.
+- We found a cassette of a concert recorded in the 1990s.
+
+9\. Cast — To select actors for roles; to throw something; to form an object by pouring material into a mold; to assign or direct something.
+
+- The director cast a young actor in the leading role.
+- The factory casts metal parts using specially designed molds.
+
+10\. Casual — Informal or relaxed; occurring by chance; not involving serious commitment.
+
+- The company allows employees to wear casual clothes on Fridays.
+- We had a casual conversation over coffee.
+
+11\. Casualty — A person injured or killed in an accident, disaster, or conflict; a person or thing harmed or lost as a result of an event.
+
+- Emergency workers transported the casualties to nearby hospitals.
+- Small businesses were among the casualties of the economic crisis.
+
+12\. Catalyst — A substance that speeds up a chemical reaction without being consumed; a person or event that causes change.
+
+- The scientist added a catalyst to speed up the reaction.
+- The new manager became a catalyst for organizational change.
+
+13\. Catastrophe — An event causing great damage, suffering, or destruction; a complete disaster.
+
+- The earthquake was a catastrophe for the local community.
+- Losing all the project data would be a catastrophe.
+
+14\. Catch — To seize or intercept something; to capture someone or something; to arrive just in time; to understand or notice something.
+
+- She caught the ball with one hand.
+- I caught the last bus home.
+
+15\. Category — A group or class of things sharing similar features.
+
+- Please place each expense in the correct category.
+- The competition has a separate category for beginners.
+
+16\. Cater — To provide food and drinks for an event; to supply or adapt something to meet particular needs.
+
+- The restaurant will cater for the wedding reception.
+- This course caters to students with different levels of experience.
+
+17\. Cathedral — A principal church of a diocese, usually associated with a bishop's official seat.
+
+- Tourists visited the medieval cathedral in the city center.
+- The cathedral is famous for its stained-glass windows.
+
+18\. Catholic — Relating to the Roman Catholic Church; broad, inclusive, or wide-ranging in tastes and interests.
+
+- She studied the history of the Catholic Church.
+- He has catholic musical tastes, enjoying everything from jazz to classical music.
+
+19\. Cause — A person, event, or thing that produces a result; a reason or principle that someone supports.
+
+- Investigators are trying to determine the cause of the fire.
+- She volunteers for a cause that supports children's education.
+
+20\. Caution — Care taken to avoid danger or mistakes; a warning about possible risk.
+
+- Use caution when working with electrical equipment.
+- The doctor advised caution before returning to strenuous exercise.
+
+21\. Cautious — Careful to avoid danger, mistakes, or unnecessary risks.
+
+- Investors remained cautious because the market was unstable.
+- Be cautious when opening email attachments from unknown senders.
+
+22\. Cavalry — The branch of an army that traditionally fought on horseback; historically, mounted soldiers.
+
+- The cavalry advanced across the battlefield.
+- The museum displays equipment used by nineteenth-century cavalry units.
+
+23\. Cavern — A large cave or underground chamber.
+
+- The explorers discovered a vast cavern beneath the mountains.
+- The cavern was filled with unusual rock formations.
+
+24\. Cavity — A hollow space or hole in something; a hollow area within the body, such as a tooth cavity.
+
+- The dentist found a cavity in one of my back teeth.
+- The machine has a small cavity where dust tends to collect.
+
+25\. Cease — To stop or bring something to an end.
+
+- The factory will cease operations next month.
+- The noise ceased when the machine was switched off.
+
+26\. Celebrate — To mark an important event with enjoyment or special activities; to honor or praise someone or something.
+
+- We celebrated her graduation with a family dinner.
+- The exhibition celebrates the achievements of local artists.
+
+27\. Cell — A small enclosed space or compartment; the basic structural unit of living organisms; a small group within a larger organization.
+
+- The prisoner was kept in a small cell.
+- Every living organism is made up of one or more cells.
+
+## Quick distinctions to remember
+
+- Cart vs. carton: A cart is a wheeled vehicle; a carton is a container, often made of cardboard.
+- Cartoon vs. carving: A cartoon is a drawing or animated work; a carving is an object shaped by cutting material.
+- Cash vs. cashier: Cash is money in coins and banknotes; a cashier handles payments.
+- Cast vs. carve: To cast is often to shape material in a mold or select actors; to carve is to shape something by cutting it.
+- Casual vs. careless: Casual often means informal or relaxed; careless means insufficiently attentive.
+- Casualty vs. catastrophe: A casualty is a person harmed or a loss; a catastrophe is a disastrous event.
+- Catalyst vs. cause: A catalyst triggers or accelerates change; a cause produces a result more generally.
+- Category vs. classification: A category is a group; classification is the process of organizing things into groups.
+- Cater vs. cater to: Cater can mean provide food; cater to means meet someone's needs or preferences.
+- Catholic vs. catholic: Capitalized, Catholic usually refers to the Roman Catholic Church; lowercase catholic can mean broad or inclusive.
+- Cause vs. caution: A cause produces an outcome or represents a principle; caution means care or a warning.
+- Cavern vs. cavity: A cavern is a large cave or chamber; a cavity is any hollow space, including a small one.
+- Cease vs. cancel: To cease is to stop; to cancel is to call off or invalidate something planned.
+- Cell vs. cellar: A cell is a small compartment or biological unit; a cellar is a room below ground.
+
+# PAGE 27
+
+1\. Cellar — A room or set of rooms below ground level, often used for storage.
+
+- The family stored vegetables and jars in the cellar.
+- We went down to the cellar to inspect the old heating system.
+
+2\. Cement — A powder used in construction that hardens when mixed with water and other materials; something that binds people or things together.
+
+- The workers mixed cement to repair the wall.
+- Their shared experience helped cement their friendship.
+
+3\. Cemetery — A place where dead people are buried; a graveyard.
+
+- The family visited the cemetery to honor their relatives.
+- The old cemetery contains graves dating back several centuries.
+
+4\. Censor — An official who examines and may remove material considered unacceptable; to examine and restrict information or expression.
+
+- The censor removed several scenes from the film.
+- The authorities attempted to censor criticism of the government.
+
+5\. Centigrade — Another term for the Celsius temperature scale, in which water freezes at 0° and boils at 100° under standard atmospheric pressure.
+
+- The temperature reached 30 degrees centigrade yesterday.
+- Water freezes at zero degrees Celsius, formerly called centigrade.
+
+6\. Cereal — A grass grown for its edible grains, such as wheat, rice, oats, or corn; a breakfast food made from grains.
+
+- Wheat is an important cereal crop in many countries.
+- I usually eat cereal with milk for breakfast.
+
+7\. Ceremonial — Relating to a formal ceremony or ritual; performed mainly for tradition or symbolic purposes.
+
+- The president wore ceremonial clothing for the state event.
+- The officer carried a ceremonial sword during the parade.
+
+8\. Ceremony — A formal event or set of actions performed according to custom, tradition, or a particular occasion.
+
+- The graduation ceremony will take place on Friday.
+- The award ceremony recognized outstanding employees.
+
+9\. Certainty — The state of being sure about something; something regarded as unquestionably true.
+
+- There is no certainty that the project will finish this month.
+- She spoke with certainty about the results of her research.
+
+10\. Certificate — An official document confirming a fact, qualification, achievement, or completion of a course.
+
+- I received a certificate after completing the training program.
+- You may need a birth certificate to apply for the document.
+
+11\. Certify — To officially confirm that something is true or that someone meets a particular standard.
+
+- The technician must certify that the equipment is safe.
+- This document certifies that she completed the course.
+
+12\. Chalk — A soft, usually white substance used for writing or drawing; to write or mark something using chalk.
+
+- The teacher wrote the equation on the board with chalk.
+- He chalked a line on the floor to mark the boundary.
+
+13\. Challenge — To question or dispute something; to invite someone to compete; a difficult task or situation.
+
+- She challenged the accuracy of the report.
+- Learning a new language can be a rewarding challenge.
+
+14\. Chamber — A room or enclosed space; a compartment; a formal assembly, such as a legislative chamber.
+
+- The machine contains a chamber where the material is heated.
+- Members of parliament gathered in the main chamber.
+
+15\. Champion — A person or team that wins a competition; to support, defend, or fight for a person or cause.
+
+- She became the national chess champion.
+- He works to champion equal opportunities in education.
+
+16\. Championship — A competition to determine the best participant or team; the title or status of being a champion.
+
+- Our team reached the national championship.
+- They celebrated their first championship in ten years.
+
+17\. Channel — A passage through which water, air, or information moves; a route or method of communication; to direct something toward a particular purpose.
+
+- The river flows through a narrow channel.
+- We use email as our main communication channel.
+
+18\. Chaos — A state of complete disorder, confusion, or lack of organization.
+
+- The sudden power outage caused chaos in the office.
+- Without a clear plan, the event quickly descended into chaos.
+
+19\. Chap — An informal word for a man or boy; a crack in the skin, especially caused by cold or dryness, usually used in the plural chapped for the skin condition.
+
+- He's a friendly chap who always helps his neighbors.
+- Cold weather can chap your lips.
+
+20\. Chapter — A main division of a book; a local branch of an organization; a distinct period in someone's life.
+
+- I read the first chapter of the book last night.
+- Graduating from university marked a new chapter in her life.
+
+21\. Character — A person's qualities and moral nature; a person in a story; a letter, symbol, or sign.
+
+- Honesty is an important part of her character.
+- The novel's main character faces several difficult choices.
+
+22\. Characteristic — A typical or distinctive feature of a person, object, or group.
+
+- Reliability is a key characteristic of a good engineer.
+- One characteristic of this species is its ability to survive in dry conditions.
+
+23\. Characterize — To describe the qualities of someone or something; to be a typical feature of something.
+
+- The report characterizes the project as a major success.
+- High operating costs characterize many older factories.
+
+24\. Charcoal — A black substance made by heating wood without enough oxygen; a material used for drawing; a very dark gray color.
+
+- The artist used charcoal to sketch the portrait.
+- They cooked the vegetables over charcoal.
+
+25\. Charge — To ask someone to pay a price; to accuse someone formally; to rush forward; to fill a battery; to give someone responsibility or instructions.
+
+- The repair shop charged me fifty dollars for the service.
+- The manager charged her with leading the new project.
+
+## Quick distinctions to remember
+
+- Cellar vs. cell: A cellar is a room below ground; a cell is a small compartment, a biological unit, or a prison room.
+- Cement vs. cementing: Cement is a construction material; cement as a verb means to strengthen or firmly establish a connection.
+- Cemetery vs. cellar: A cemetery is where people are buried; a cellar is a room below ground.
+- Censor vs. censure: To censor is to remove or restrict content; to censure is to express strong disapproval.
+- Cereal vs. serial: Cereal refers to grain or a grain-based food; serial means arranged or occurring in a sequence.
+- Ceremonial vs. ceremony: Ceremonial is an adjective; ceremony is a noun.
+- Certainty vs. certificate: Certainty is the state of being sure; a certificate is a document confirming something.
+- Certify vs. verify: To certify is to officially confirm; to verify is to check whether something is true or accurate.
+- Challenge vs. champion: To challenge is to question or compete against; to champion is to support or defend.
+- Champion vs. championship: A champion is a winner; a championship is the competition or title.
+- Channel vs. chamber: A channel is a route for movement or communication; a chamber is an enclosed room or space.
+- Character vs. characteristic: Character can mean moral nature or a fictional person; a characteristic is a distinguishing feature.
+- Characteristic vs. characterize: A characteristic is a feature; to characterize is to describe features or identify typical qualities.
+- Charge vs. cost: A charge is an amount someone asks you to pay; cost is the amount required or spent to obtain something.
+
+# PAGE 28
+
+1\. Charity — The voluntary giving of money, goods, or help to people in need; an organization that provides such assistance.
+
+- She donated part of her salary to a local charity.
+- The charity provides food and education for disadvantaged children.
+
+2\. Charm — The quality of being attractive or pleasing; an object worn as jewelry or believed to bring good luck; to delight or attract someone.
+
+- The small village has a unique charm.
+- Her friendly manner charmed everyone at the meeting.
+
+3\. Chart — A diagram or graph showing information; a map used for navigation; to record or plan something systematically.
+
+- The chart shows how sales changed over the year.
+- The captain checked the nautical chart before leaving the harbor.
+
+4\. Charter — An official document granting rights or defining an organization's powers; to hire a vehicle or vessel for private use; to establish or authorize an organization.
+
+- The university was established under a royal charter.
+- We chartered a boat to explore the islands.
+
+5\. Chase — To pursue someone or something in order to catch it; to try hard to obtain something.
+
+- The police chased the suspect through the streets.
+- She is chasing her dream of becoming a researcher.
+
+6\. Chat — To talk informally and casually; an informal conversation.
+
+- I chatted with my colleague during the lunch break.
+- We had a quick chat about the upcoming project.
+
+7\. Check — To inspect or verify something; to stop, restrain, or control something; a mark indicating correctness; a written order for a bank to pay money.
+
+- Please check the figures before sending the report.
+- The new regulations helped check the spread of the disease.
+
+8\. Cheer — A feeling of happiness or encouragement; a shout expressing support or approval; to encourage or make someone happier.
+
+- The team's victory brought cheer to the entire town.
+- The fans cheered loudly when their team scored.
+
+9\. Cheque — A written instruction directing a bank to pay a specified amount from someone's account.
+
+- She paid the contractor by cheque.
+- The bank confirmed that the cheque had cleared.
+
+10\. Cherish — To love, value, or protect someone or something deeply.
+
+- I cherish the memories of my childhood.
+- The organization cherishes its long-standing relationship with the community.
+
+11\. Chew — To bite and grind food with the teeth; to think about something carefully, often expressed as chew something over.
+
+- Chew your food slowly before swallowing.
+- We need time to chew over the proposal before deciding.
+
+12\. Chief — The person with the highest authority in a group; most important or principal.
+
+- The chief of police addressed the reporters.
+- Our chief concern is the safety of the employees.
+
+13\. Chill — To make or become cold; a feeling of coldness; to relax, especially in informal usage.
+
+- Chill the juice before serving it.
+- We stayed home to chill and watch a movie.
+
+14\. Chilly — Somewhat cold; unfriendly or lacking warmth in manner.
+
+- It was chilly outside, so I wore a jacket.
+- She gave me a chilly response after the disagreement.
+
+15\. Chin — The part of the face below the mouth, forming the front of the lower jaw.
+
+- He rested his chin on his hand while thinking.
+- She lifted her chin and looked directly at the interviewer.
+
+16\. Chip — A small piece broken or cut from something; to break or remove a small piece; to reduce something slightly.
+
+- A chip came off the edge of the glass.
+- Be careful not to chip the paint on the door.
+
+17\. Choke — To have difficulty breathing because the airway is blocked or restricted; to prevent air or flow from passing freely; to become unable to act effectively under pressure.
+
+- He began to choke on a piece of food.
+- The narrow pipe became choked with dirt.
+
+18\. Chop — To cut something into pieces using a sharp tool; a thick cut of meat.
+
+- Chop the onions into small pieces.
+- He ordered a grilled pork chop at the restaurant.
+
+19\. Chorus — A group of people singing together; the repeated part of a song; a statement made simultaneously by several people.
+
+- The school chorus performed at the annual concert.
+- Everyone answered in chorus when the teacher asked the question.
+
+20\. Circle — A round shape; to move around something; a group of people sharing an interest or relationship.
+
+- Draw a circle around the correct answer.
+- She belongs to a circle of researchers working on artificial intelligence.
+
+21\. Circuit — A complete path for electrical current; a route that returns to its starting point; a series of locations or events visited in sequence.
+
+- The electrician repaired the damaged circuit.
+- The tennis player competed on the international tournament circuit.
+
+22\. Circular — Round in shape; arranged or moving in a circle; a notice or document distributed to many people.
+
+- The meeting room has a circular table.
+- The company sent a circular explaining the updated policy.
+
+23\. Circulate — To move continuously through a system or area; to distribute information or materials among people.
+
+- Blood circulates throughout the body.
+- Please circulate the meeting notes to the entire team.
+
+24\. Circulation — The movement of something through a system; the distribution or spread of information; the number of copies of a publication distributed.
+
+- Regular exercise can improve blood circulation.
+- The newspaper increased its circulation last year.
+
+25\. Circumference — The distance around a circle or circular object; the boundary line of a circular shape.
+
+- Measure the circumference of the tree trunk.
+- The circumference of a circle depends on its diameter.
+
+26\. Circumstance — A condition, situation, or fact connected with an event; the conditions affecting how something happens.
+
+- Under normal circumstances, the office closes at five.
+- The circumstances forced us to change our travel plans.
+
+## Quick distinctions to remember
+
+- Charity vs. charm: Charity involves giving help or supporting those in need; charm is an attractive or pleasing quality.
+- Chart vs. charter: A chart displays information or maps an area; a charter grants rights or authorizes an organization.
+- Chase vs. check: To chase is to pursue; to check is to inspect, control, or stop.
+- Chat vs. chew: Chat means to talk informally; chew means to grind food with the teeth.
+- Check vs. cheque: Check has many meanings, including inspect or verify; cheque is a bank payment document in British English.
+- Cheer vs. cherish: To cheer is to encourage or express happiness; to cherish is to value or love deeply.
+- Chief vs. chilly: Chief means highest-ranking or most important; chilly means somewhat cold or unfriendly.
+- Chill vs. chilly: Chill can be a noun or verb; chilly is an adjective.
+- Chip vs. chop: A chip is a small piece or a small break; to chop is to cut something into pieces.
+- Choke vs. chill: To choke is to struggle to breathe or restrict a flow; to chill is to cool or relax.
+- Circle vs. circuit: A circle is a round shape; a circuit is a complete path or a route through a series of places.
+- Circular vs. circulate: Circular is an adjective describing a shape or a notice; circulate is a verb meaning to move or distribute.
+- Circulation vs. circumference: Circulation is movement or distribution; circumference is the distance around a circle.
+- Circumstance vs. situation: Both describe conditions, but circumstance often emphasizes the surrounding facts that influence an event.
+
+# PAGE 29
+
+1\. Circus — A traveling or stationary show featuring performers such as acrobats, clowns, and aerialists; informally, a situation full of confusion or uncontrolled activity.
+
+- The children were excited to watch the circus performers.
+- The press conference turned into a circus when reporters began shouting.
+
+2\. Cite — To quote or refer to a source; to mention an example as evidence; to officially summon someone, especially in legal proceedings.
+
+- You should cite reliable sources in your research paper.
+- The police officer cited him for driving without insurance.
+
+3\. Citizenship — The legal status of being a citizen of a country, with associated rights and responsibilities.
+
+- She applied for Egyptian citizenship.
+- Citizenship gives people certain rights and responsibilities under the law.
+
+4\. Civil — Relating to citizens, civilian life, or the state; polite and respectful; relating to noncriminal legal matters.
+
+- The country introduced new civil rights legislation.
+- Although they disagreed, they remained civil throughout the meeting.
+
+5\. Civilization — A developed human society with organized institutions, culture, technology, and systems of living.
+
+- Ancient Egyptian civilization developed along the Nile River.
+- Advances in agriculture helped many early civilizations grow.
+
+6\. Claim — To state that something is true; to demand something as a right; a statement or demand that may need evidence.
+
+- The company claims that its software improves productivity.
+- She filed a claim with the insurance company after the accident.
+
+7\. Clamp — A device used to hold objects tightly together; to fasten, grip, or restrict something firmly.
+
+- Use a clamp to hold the wood in place while drilling.
+- The government introduced measures to clamp down on illegal trading.
+
+8\. Clap — To strike the hands together, especially to show approval; to strike something with a sharp sound.
+
+- The audience began to clap after the performance.
+- He clapped his hands to get everyone's attention.
+
+9\. Clarification — Additional information or explanation that makes something easier to understand.
+
+- I requested clarification about the application requirements.
+- The manager sent a clarification of the new policy.
+
+10\. Clarify — To make something clear or easier to understand; to remove confusion or uncertainty.
+
+- Could you clarify what you mean by the final paragraph?
+- The meeting helped clarify everyone's responsibilities.
+
+11\. Clash — To collide or strike together noisily; to disagree strongly; a conflict between people, ideas, or events.
+
+- The metal objects clashed loudly when they fell.
+- Their opinions clashed during the discussion.
+
+12\. Clasp — A device used to fasten something; a firm grip or hold; to hold something tightly.
+
+- The clasp on my necklace broke.
+- She clasped her hands together while listening.
+
+13\. Classic — A work regarded as having lasting quality or importance; an example of a traditional or typical style.
+
+- We studied a classic novel in our literature course.
+- A white shirt and dark trousers are a classic combination.
+
+14\. Classical — Relating to ancient Greek and Roman culture, traditional artistic forms, or established styles such as classical music.
+
+- She enjoys listening to classical music while studying.
+- The museum has a collection of classical Greek sculptures.
+
+15\. Classification — The process of arranging things into groups according to shared characteristics; the resulting system of categories.
+
+- The classification of the samples was based on their chemical properties.
+- The library uses a classification system to organize its books.
+
+16\. Classify — To arrange things into categories; to designate information as restricted or confidential.
+
+- Scientists classify animals according to shared characteristics.
+- The agency classified the document as confidential.
+
+17\. Clause — A distinct section of a legal document; a grammatical unit containing a subject and a verb.
+
+- The contract contains a clause about early termination.
+- In the sentence “because she was tired,” the clause explains the reason.
+
+18\. Clay — Fine-grained natural soil that becomes moldable when wet and hard when fired.
+
+- The potter shaped the clay into a bowl.
+- Clay soil often retains water longer than sandy soil.
+
+19\. Clear — Easy to understand; transparent; free from obstruction; to remove objects or obstacles; to officially approve something.
+
+- The instructor gave clear instructions.
+- Security cleared the visitor to enter the restricted area.
+
+20\. Clearance — Permission or authorization to proceed; the removal of obstacles or unwanted items; the distance between two objects or surfaces.
+
+- The engineer received security clearance to access the facility.
+- There must be enough clearance beneath the bridge for the vehicle to pass.
+
+21\. Clench — To close or hold something tightly, especially the teeth or fists.
+
+- He clenched his fists in frustration.
+- She clenched her teeth while enduring the pain.
+
+22\. Client — A person or organization that receives professional services or pays for goods or services.
+
+- The consultant prepared a report for her client.
+- Our company recently signed a new client.
+
+23\. Clientele — The group of customers or clients regularly served by a business or professional.
+
+- The cafe attracts a young, international clientele.
+- The lawyer has a clientele consisting mainly of small businesses.
+
+24\. Climate — The usual weather conditions of a region over a long period; the general atmosphere or conditions surrounding a situation.
+
+- The region has a dry climate with very little rainfall.
+- The company is trying to create a climate of trust and cooperation.
+
+25\. Climax — The highest or most intense point of something, especially a story, event, or process.
+
+- The film reaches its climax during the final confrontation.
+- The concert ended with a dramatic climax.
+
+26\. Cling — To hold tightly to something; to stick or remain attached; to depend emotionally on someone.
+
+- The wet shirt clung to his back.
+- The child clung to her mother in the crowded station.
+
+27\. Clinic — A healthcare facility where patients receive medical advice, examinations, or treatment, often without staying overnight.
+
+- She visited the clinic for a routine checkup.
+- The university operates a clinic that provides affordable healthcare.
+
+## Quick distinctions to remember
+
+- Circus vs. civilization: A circus is a performance show or a chaotic situation; civilization is an organized human society.
+- Cite vs. site: To cite is to refer to a source; a site is a place or location.
+- Citizenship vs. civil: Citizenship is a legal status; civil can describe citizens, civilian matters, or polite behavior.
+- Claim vs. clarification: A claim is an assertion or demand; a clarification makes information easier to understand.
+- Clamp vs. clasp: A clamp is a device that grips objects; a clasp is a fastener or a firm grip.
+- Clap vs. clash: To clap is to strike the hands together; to clash is to collide or come into conflict.
+- Classic vs. classical: Classic often describes a highly regarded work or a typical example; classical relates to established traditions, ancient cultures, or classical music.
+- Classification vs. classify: Classification is the process or system of grouping; classify is the verb meaning to group.
+- Clause vs. sentence: A clause contains a subject and a verb; a sentence is a complete grammatical unit and may contain one or more clauses.
+- Clear vs. clarify: Clear can describe something understandable or unobstructed; clarify means to make something clearer.
+- Clearance vs. clarification: Clearance means permission, removal, or available space; clarification means an explanation.
+- Client vs. clientele: A client is an individual or organization receiving services; clientele is the group of clients a business serves.
+- Climate vs. weather: Climate describes long-term patterns; weather describes conditions at a particular time.
+- Climax vs. climate: A climax is a peak or highest point; climate is the typical weather or general atmosphere.
+- Cling vs. clench: To cling is to hold on or stick to something; to clench is to tighten or grip something firmly.
+
+# PAGE 30
+
+1\. Clip — A short section of a film, video, or audio recording; a device used to hold things together; to cut or trim something.
+
+- I watched a short clip from the documentary.
+- She used a paper clip to keep the documents together.
+
+2\. Clockwise — Moving in the same direction as the hands of a clock.
+
+- Turn the screw clockwise to tighten it.
+- The runners moved clockwise around the track.
+
+3\. Closet — A small enclosed space, usually used for storing clothes or other items; a private space or state that is not openly revealed, as in in the closet.
+
+- I keep my jackets in the bedroom closet.
+- He kept his interest in painting in the closet for years.
+
+4\. Clue — A piece of information that helps solve a problem or mystery; a hint or indication.
+
+- The detective found an important clue at the scene.
+- Her expression gave me a clue about how she felt.
+
+5\. Clumsy — Awkward in movement or lacking physical coordination; poorly handled or expressed.
+
+- I was so clumsy that I dropped my phone twice.
+- His clumsy explanation made the situation even more confusing.
+
+6\. Cluster — A group of similar things gathered closely together; to gather or form into a group.
+
+- A cluster of stars was visible in the night sky.
+- The houses cluster around the old town square.
+
+7\. Clutch — To grasp or hold something tightly; a firm grip; a small bag without handles; a vehicle mechanism that connects and disconnects the engine from the transmission.
+
+- She clutched her bag as she walked through the crowded market.
+- Press the clutch before changing gears in a manual car.
+
+8\. Coach — A person who trains or guides someone; a tutor or instructor; a large bus; a railway carriage.
+
+- The coach helped the team improve its performance.
+- We took a coach from Cairo to Alexandria.
+
+9\. Coarse — Rough in texture; made up of large particles; crude, harsh, or lacking refinement.
+
+- This towel is made from coarse fabric.
+- His coarse language was inappropriate for a professional meeting.
+
+10\. Code — A system of laws or rules; a set of symbols or instructions; a system used to represent or protect information.
+
+- Employees must follow the company's code of conduct.
+- The programmer wrote code to automate the task.
+
+11\. Codify — To organize laws, rules, or principles into a systematic code; to arrange information into an organized system.
+
+- The government plans to codify the existing regulations.
+- The team codified its procedures in a formal handbook.
+
+12\. Coherence — The quality of being logical, consistent, and well organized; the state of parts fitting or sticking together.
+
+- The report lacks coherence because its ideas are poorly connected.
+- The coherence of the material depends on how its particles interact.
+
+13\. Coherent — Logical, clear, and consistent; able to express ideas understandably; physically joined or sticking together.
+
+- She gave a coherent explanation of the problem.
+- Despite being tired, he remained coherent during the interview.
+
+14\. Cohesion — The tendency of parts or members to stick together or remain united; unity within a group or system.
+
+- Team cohesion improved after the employees completed the training.
+- Water molecules exhibit cohesion because they attract one another.
+
+15\. Cohesive — Closely connected, united, or forming a well-organized whole.
+
+- The team developed a cohesive strategy for the project.
+- The essay needs a more cohesive structure.
+
+16\. Coil — A series of loops or spirals; to wind something into loops or spirals.
+
+- There was a coil of wire beside the machine.
+- She coiled the rope neatly before putting it away.
+
+17\. Coin — A piece of metal used as money; to invent a new word or expression; to make coins.
+
+- I found a coin under the sofa.
+- The researcher coined a new term to describe the phenomenon.
+
+18\. Coinage — Coins collectively; the process of making coins; the creation of new words or expressions.
+
+- The museum displays ancient Roman coinage.
+- The coinage of new technical terms often follows advances in science.
+
+19\. Coincide — To happen at the same time; to correspond or agree with something.
+
+- The conference dates coincide with my final exams.
+- Our opinions coincide on most major issues.
+
+20\. Coincidence — A situation in which events occur together by chance; an unexpected correspondence between things.
+
+- Meeting my old teacher abroad was a surprising coincidence.
+- By coincidence, we both chose the same research topic.
+
+21\. Coincident — Occurring at the same time; matching or corresponding with something else.
+
+- The two events were coincident, so I could attend only one.
+- Their findings were coincident with the results of earlier studies.
+
+22\. Collaborate — To work together with others to achieve a shared goal.
+
+- Researchers from three universities collaborated on the study.
+- Our departments collaborate to improve customer service.
+
+23\. Collaboration — The act of working jointly with others; a project or result produced through cooperation.
+
+- The successful product was the result of collaboration between engineers and designers.
+- International collaboration can help researchers solve complex problems.
+
+24\. Collapse — To fall down or suddenly lose structure; to fail completely; a sudden physical or mental breakdown.
+
+- The old roof collapsed during the storm.
+- The computer system collapsed under heavy demand.
+
+25\. Colleague — A person who works with you, especially in the same profession or organization.
+
+- I asked a colleague to review my presentation.
+- She maintains good relationships with her colleagues at work.
+
+## Quick distinctions to remember
+
+- Clip vs. clutch: A clip holds things together or refers to a short recording; a clutch can mean a tight grip, a type of bag, or a vehicle mechanism.
+- Clockwise vs. circular: Clockwise describes a direction; circular describes a round shape or movement.
+- Closet vs. cellar: A closet is a small storage space, usually indoors; a cellar is a room below ground.
+- Clue vs. claim: A clue helps reveal information; a claim is an assertion or demand.
+- Cluster vs. clutch: A cluster is a group gathered together; to clutch is to hold something tightly.
+- Coach vs. colleague: A coach trains or guides someone; a colleague works alongside someone.
+- Coarse vs. clumsy: Coarse describes rough texture or crude behavior; clumsy describes awkward movement or poorly handled actions.
+- Code vs. codify: A code is a system of rules or symbols; to codify is to organize rules into a systematic code.
+- Coherence vs. cohesion: Coherence emphasizes logical connection; cohesion emphasizes parts sticking together or remaining united.
+- Coherent vs. cohesive: Coherent usually means logical and understandable; cohesive means well integrated or united.
+- Coil vs. cluster: A coil is arranged in loops or spirals; a cluster is a group of things close together.
+- Coin vs. coinage: A coin is an individual piece of money or a verb meaning to invent; coinage refers to coins collectively or the process of creating words.
+- Coincide vs. coincidence: Coincide is a verb meaning to occur together or correspond; coincidence is the noun describing such an occurrence.
+- Coincident vs. coincidental: Both relate to events happening together; coincident can also mean matching or corresponding, while coincidental emphasizes chance.
+- Collaborate vs. collaboration: Collaborate is a verb; collaboration is a noun.
+- Collapse vs. clash: To collapse is to fall or fail; to clash is to collide or strongly disagree.
+- Colleague vs. client: A colleague works with you; a client receives or pays for professional services.
+
+---
