@@ -4203,3 +4203,1213 @@ Practice challenge: Fill in the blanks without looking back.
 - Colleague vs. client: A colleague works with you; a client receives or pays for professional services.
 
 ---
+
+# PAGE 31
+
+1\. Collective — Shared by or belonging to a group; considered as a whole rather than as separate individuals.
+
+- The team made a collective decision to change the project plan.
+- The company's collective efforts led to a successful launch.
+
+2\. Collide — To hit something or someone with force; to conflict or disagree strongly.
+
+- Two cars collided at the intersection.
+- Their plans collided with the company's financial priorities.
+
+3\. Collision — An accident in which objects hit each other; a conflict between opposing ideas, interests, or goals.
+
+- The collision damaged both vehicles.
+- The meeting resulted in a collision of opposing viewpoints.
+
+4\. Colonel — A senior military officer rank, generally above lieutenant colonel and below brigadier general or its equivalent, depending on the country's military structure.
+
+- The colonel addressed the soldiers before the exercise.
+- She was promoted to colonel after years of military service.
+
+5\. Colonial — Relating to a colony or the period when a territory was controlled by another country.
+
+- The museum displays colonial-era documents.
+- Colonial rule had a lasting impact on the country's institutions.
+
+6\. Colony — A territory controlled by another country; a group of organisms living together, such as ants or bees.
+
+- The island became a colony of a European power.
+- A colony of ants built a nest beneath the garden wall.
+
+7\. Column — A vertical pillar supporting a structure; a vertical arrangement of information; a regular article in a newspaper or magazine.
+
+- The ancient temple was supported by tall stone columns.
+- Enter each employee's name in the first column of the spreadsheet.
+
+8\. Combat — To fight against an enemy; to take action to reduce or prevent a problem.
+
+- The soldiers trained to combat threats to national security.
+- The organization works to combat food waste.
+
+9\. Combination — A mixture or joining of different things; a set of items or numbers used together.
+
+- Success requires a combination of knowledge and practical experience.
+- Enter the correct combination to open the safe.
+
+10\. Combine — To join or mix things together to form a whole.
+
+- Combine the flour and water in a large bowl.
+- The two departments will combine their resources to finish the project.
+
+11\. Comedy — A form of entertainment intended to make people laugh; a humorous play, film, or performance, often with a happy ending.
+
+- We watched a comedy after dinner.
+- The theater is staging a comedy about family life.
+
+12\. Comic — Intended to make people laugh; a comedian or a comic-book publication, depending on context.
+
+- The film has several comic scenes.
+- He collects comic books featuring superheroes.
+
+13\. Commander — A person who leads or has authority over a military unit, operation, or organization.
+
+- The commander briefed the troops before the mission.
+- She became the commander of the naval vessel.
+
+14\. Commandment — An authoritative rule or instruction, especially a religious or moral one.
+
+- The Ten Commandments are important in Jewish and Christian traditions.
+- He treated honesty as a personal commandment.
+
+15\. Commemorate — To honor or remember a person, event, or achievement, often through a ceremony or memorial.
+
+- The country held a ceremony to commemorate the soldiers who died in the war.
+- A plaque was installed to commemorate the building's opening.
+
+16\. Commence — To begin or start, especially in formal contexts.
+
+- The examination will commence at nine o'clock.
+- Construction is scheduled to commence next month.
+
+17\. Commend — To praise or express approval of someone; to entrust someone or something to another's care, especially in formal usage.
+
+- The manager commended the team for its excellent work.
+- The document commended the matter to the committee's careful consideration.
+
+18\. Comment — To express an opinion or observation; a spoken or written remark.
+
+- She declined to comment on the ongoing investigation.
+- His comments helped clarify the main issue.
+
+19\. Commerce — The activity of buying and selling goods and services; the exchange of goods, services, or information.
+
+- International commerce connects businesses across national borders.
+- Digital platforms have changed the way commerce operates.
+
+20\. Commercial — Related to business, trade, or profit; intended for the general market.
+
+- The company moved into a larger commercial building.
+- The director produced a commercial advertisement for the new product.
+
+21\. Commission — A fee paid for completing a sale or service; an authorized group assigned a task; to formally authorize someone to do something.
+
+- The salesperson earns a commission on every successful sale.
+- The government established a commission to investigate the incident.
+
+22\. Commit — To carry out an act, especially a crime or mistake; to dedicate oneself to an activity or responsibility; to formally assign someone to a place or institution.
+
+- The suspect was accused of committing fraud.
+- She committed herself to improving her English.
+
+23\. Commitment — A promise or obligation; dedication to a task, goal, or relationship.
+
+- Finishing the degree requires commitment and discipline.
+- He made a commitment to attend every weekly meeting.
+
+24\. Committee — A group of people appointed or selected to consider a matter, make recommendations, or perform a specific task.
+
+- The committee will review the scholarship applications.
+- A special committee was formed to investigate the complaint.
+
+25\. Commodity — A basic good that can be bought and sold, often in bulk; something useful or valuable.
+
+- Oil is an important commodity in the global economy.
+- In some communities, clean water is a scarce commodity.
+
+## Quick distinctions to remember
+
+- Collective vs. combination: Collective describes something shared by a group; a combination is a joining of different things.
+- Collide vs. collision: Collide is a verb; collision is a noun.
+- Colonel vs. colonial: A colonel is a military officer; colonial describes something related to a colony.
+- Colony vs. collective: A colony is a territory or community of organisms; collective refers to something shared or considered as a whole.
+- Column vs. colony: A column can be a pillar, spreadsheet section, or article; a colony is a territory or group of organisms.
+- Combat vs. collide: To combat is to fight against or reduce a problem; to collide is to hit something or come into conflict.
+- Comedy vs. comic: Comedy is a genre or work intended to amuse; comic describes something humorous and can also refer to a comic-book publication.
+- Commence vs. commemorate: To commence is to begin; to commemorate is to honor or remember.
+- Commend vs. comment: To commend is to praise; to comment is to make a remark or express an opinion.
+- Commerce vs. commercial: Commerce is the activity of trade; commercial is an adjective describing business or market-related activity.
+- Commission vs. committee: A commission can be a fee or an authorized investigative group; a committee is a group assigned to consider or handle a matter.
+- Commit vs. commitment: To commit is to perform or dedicate oneself to something; commitment is the promise or dedication itself.
+- Commodity vs. product: A commodity is typically a basic tradable good; a product is anything made or offered for sale.
+
+# PAGE 32
+
+1\. Commonplace — Ordinary or familiar; not unusual, interesting, or remarkable.
+
+- Smartphones have become commonplace in modern society.
+- What once seemed extraordinary is now commonplace.
+
+2\. Commonsense — Based on practical judgment and ordinary experience; sensible and reasonable.
+
+- It is common sense to save a copy of important files.
+- The decision was guided by commonsense rather than complicated theories.
+
+3\. Communicate — To share or convey information, ideas, or feelings; to make something known.
+
+- Please communicate any changes to the schedule as soon as possible.
+- She communicates complex ideas clearly to her students.
+
+4\. Communication — The process of exchanging information, ideas, or feelings; a message or means of conveying information.
+
+- Effective communication is essential for teamwork.
+- We received communication from the supplier confirming the delivery date.
+
+5\. Community — A group of people who live in the same area or share interests, characteristics, or goals.
+
+- The local community organized a cleanup campaign.
+- An online community can connect people with similar interests.
+
+6\. Compact — Small and efficiently arranged; closely packed together; concise, containing much information in a small space.
+
+- I bought a compact laptop that fits easily in my backpack.
+- The guide provides a compact summary of the main findings.
+
+7\. Companion — A person who accompanies another; a partner or associate; something that goes well with another thing.
+
+- My travel companion helped me navigate the city.
+- This handbook is a useful companion to the main textbook.
+
+8\. Company — A business organization; a group of people together; the presence or companionship of others.
+
+- She works for a technology company.
+- I enjoyed his company during the long journey.
+
+9\. Comparable — Similar enough to be compared; roughly equivalent in quality, size, value, or importance.
+
+- The two laptops offer comparable performance.
+- This year's sales are comparable to last year's figures.
+
+10\. Comparative — Involving the comparison of two or more things; relative rather than absolute.
+
+- The report provides a comparative analysis of three marketing strategies.
+- The product is inexpensive in comparative terms.
+
+11\. Comparatively — In comparison with something else; relatively.
+
+- The new system is comparatively easy to maintain.
+- Housing is comparatively affordable in this part of the city.
+
+12\. Compare — To examine two or more things to identify similarities and differences; to describe one thing in relation to another.
+
+- Compare the two offers before making a decision.
+- The researcher compared the results with previous studies.
+
+13\. Compass — An instrument that shows direction; to surround or encompass something, especially in formal or literary usage.
+
+- We used a compass to find our way through the forest.
+- The project was designed to compass a wide range of educational needs.
+
+14\. Compatible — Able to work, exist, or function together without conflict; having similar preferences or characteristics.
+
+- This software is compatible with Windows 11.
+- Their working styles are compatible, so they collaborate well.
+
+15\. Compel — To force or strongly persuade someone to do something; to make an action necessary.
+
+- Financial difficulties compelled the company to reduce its expenses.
+- The evidence compelled the committee to reconsider its decision.
+
+16\. Compensate — To pay or provide something to make up for a loss, injury, or service; to offset a disadvantage.
+
+- The company compensated the customer for the damaged product.
+- Extra training can compensate for a lack of practical experience.
+
+17\. Compensation — Money or another benefit given for work, loss, injury, or damage; something that offsets a disadvantage.
+
+- The job offers competitive compensation and health benefits.
+- Flexible working hours can be compensation for a longer commute.
+
+18\. Compete — To try to win against others; to strive to achieve something in competition with others.
+
+- Several companies compete for the same customers.
+- She trained every day to compete in the national tournament.
+
+19\. Competent — Having the knowledge and ability required to do something adequately or effectively.
+
+- We need a competent technician to repair the network.
+- He is competent at analyzing data and preparing reports.
+
+20\. Competition — A contest between individuals or groups; rivalry between businesses or people seeking the same goal.
+
+- She entered a programming competition.
+- Competition among retailers can lead to lower prices.
+
+21\. Competitive — Involving rivalry or competition; able or eager to compete successfully; offering attractive terms compared with alternatives.
+
+- The company operates in a highly competitive market.
+- They offered a competitive salary to attract skilled applicants.
+
+22\. Competitiveness — The ability or willingness to compete successfully; the degree to which something can compete effectively.
+
+- Innovation can improve a country's economic competitiveness.
+- The company's competitiveness depends partly on its production costs.
+
+23\. Competitor — A person, team, or organization that competes against another.
+
+- Our main competitor recently launched a similar product.
+- Each competitor must complete the challenge within one hour.
+
+24\. Compile — To collect information or materials from different sources and organize them into one document, list, or whole; to translate source code into a form a computer can execute.
+
+- I compiled the survey results into a single report.
+- The programmer compiled the code before running the application.
+
+25\. Complain — To express dissatisfaction, annoyance, or pain; to make a formal complaint or accusation.
+
+- Customers complained about the delayed delivery.
+- She complained to the manager about the poor service.
+
+26\. Complaint — An expression of dissatisfaction, pain, or resentment; a formal statement that something is wrong.
+
+- The company received a complaint about its customer service.
+- He filed a formal complaint about the unsafe working conditions.
+
+27\. Complement — To complete or improve something by adding a suitable part; something that completes or enhances another thing.
+
+- The blue curtains complement the room's neutral colors.
+- Her technical skills are a useful complement to his business experience.
+
+## Quick distinctions to remember
+
+- Commonplace vs. commonsense: Commonplace means ordinary or usual; commonsense means practical and sensible.
+- Communicate vs. communication: Communicate is a verb; communication is the process or an instance of exchanging information.
+- Community vs. company: A community is a group connected by location or shared interests; a company can be a business or the presence of other people.
+- Compact vs. comparable: Compact means small or closely packed; comparable means similar enough to compare.
+- Comparable vs. comparative: Comparable describes things that can be compared meaningfully; comparative describes an analysis or judgment based on comparison.
+- Compare vs. compass: To compare is to examine similarities and differences; a compass is a direction-finding instrument.
+- Compatible vs. comparable: Compatible things can work or exist together; comparable things are similar enough to evaluate side by side.
+- Compel vs. compete: To compel is to force or strongly pressure; to compete is to try to win or succeed against others.
+- Compensate vs. complement: To compensate is to make up for a loss or disadvantage; to complement is to add something that improves or completes another thing.
+- Compensation vs. competitiveness: Compensation is payment or an offsetting benefit; competitiveness is the ability to compete effectively.
+- Competent vs. competitive: Competent means capable of doing a task; competitive means able or eager to compete.
+- Competitor vs. competition: A competitor is a participant or rival; competition is the contest or rivalry.
+- Compile vs. compose: To compile is to gather and organize existing material; to compose is to create or put material together.
+- Complain vs. complaint: Complain is a verb; complaint is a noun.
+- Complement vs. compliment: Complement means complete or enhance; compliment means express praise.
+
+# PAGE 33
+
+1\. Complex — Made up of many connected parts; difficult to understand or deal with; a group of related buildings or structures.
+
+- The company is developing a complex software system.
+- The sports complex includes a swimming pool and several courts.
+
+2\. Complexity — The state of having many connected parts or being difficult to understand or manage.
+
+- The complexity of the problem required a multidisciplinary team.
+- We simplified the process without losing its essential complexity.
+
+3\. Compliance — The act of following a rule, law, request, or requirement; conformity with established standards.
+
+- The company must ensure compliance with data protection laws.
+- The equipment was inspected to confirm compliance with safety standards.
+
+4\. Complicated — Difficult to understand, explain, or manage because of many parts or details.
+
+- The instructions were too complicated for a beginner.
+- Resolving the issue became complicated when several departments became involved.
+
+5\. Compliment — An expression of praise or admiration; to praise someone.
+
+- She gave me a compliment on my presentation.
+- The manager complimented the team on its excellent work.
+
+6\. Complimentary — Expressing praise or approval; provided free of charge, often as a courtesy.
+
+- The director sent a complimentary message to the staff.
+- Guests receive complimentary breakfast at the hotel.
+
+7\. Comply — To act according to a rule, request, order, or requirement.
+
+- All employees must comply with the company's safety rules.
+- The supplier agreed to comply with the revised contract.
+
+8\. Component — One of the parts that make up a larger system, object, or process.
+
+- The motherboard is a major component of a computer.
+- Communication is an essential component of effective teamwork.
+
+9\. Compose — To create or write something; to form something by combining parts; to calm oneself.
+
+- She composed an email to the project manager.
+- The committee is composed of five experienced professionals.
+
+10\. Composite — Made up of different parts or materials; something formed by combining separate elements.
+
+- The engineers developed a composite material that is both light and strong.
+- The report includes a composite score based on several performance measures.
+
+11\. Composition — The way something is made up or arranged; a piece of writing, music, or artwork.
+
+- The chemical composition of the sample was analyzed.
+- Students were asked to write a short composition about technology.
+
+12\. Compound — To combine or mix elements; a substance formed from two or more elements; to make a problem worse; to calculate interest on accumulated interest.
+
+- Hydrogen and oxygen combine to form the compound water.
+- Delaying the repair could compound the problem.
+
+13\. Comprehend — To understand the meaning, nature, or importance of something.
+
+- It took me some time to comprehend the instructions.
+- The researcher struggled to comprehend the implications of the results.
+
+14\. Comprehension — The ability to understand information; the understanding of something.
+
+- Reading comprehension improves with regular practice.
+- Her comprehension of the technical material was impressive.
+
+15\. Comprehensive — Complete and thorough; covering a wide range of subjects or details.
+
+- The report provides a comprehensive overview of the market.
+- We need a comprehensive testing plan before releasing the software.
+
+16\. Compress — To press or squeeze something into a smaller space; to reduce the size of digital data.
+
+- Compress the files before sending them by email.
+- The machine compresses the material into dense blocks.
+
+17\. Compression — The act or process of squeezing something into a smaller space; the reduction of digital file size or data requirements.
+
+- The compression of the spring stores mechanical energy.
+- Video compression reduces file size while preserving as much quality as possible.
+
+18\. Comprise — To consist of or include the parts that make up a whole.
+
+- The course comprises six modules and a final assessment.
+- The committee comprises representatives from several departments.
+
+19\. Compromise — To reach an agreement through mutual concessions; to weaken or put something at risk.
+
+- Both sides made concessions to reach a compromise.
+- Sharing the password could compromise the security of the system.
+
+20\. Compulsory — Required by a rule, law, or authority; mandatory.
+
+- Attendance is compulsory for all new employees.
+- Students must complete compulsory safety training before entering the laboratory.
+
+21\. Computation — The process of calculating or processing information, especially mathematically or by computer.
+
+- The computation required several hours on the computer.
+- Scientific computation is essential for many engineering simulations.
+
+22\. Compute — To calculate a value or process information using mathematical methods or a computer.
+
+- The program computes the average of the selected numbers.
+- We used the available data to compute the project's total cost.
+
+23\. Conceal — To hide something or prevent it from being seen, discovered, or known.
+
+- He tried to conceal the damaged equipment from his supervisor.
+- The company was accused of concealing important information.
+
+24\. Concede — To admit that something is true, often reluctantly; to yield or give up something, such as control or a position.
+
+- She conceded that the other team had performed better.
+- The company refused to concede control of its main operations.
+
+25\. Conceit — Excessive pride in oneself or one's abilities; an elaborate or imaginative idea, especially in literary usage.
+
+- His conceit made it difficult for him to accept criticism.
+- The poem is built around the conceit of life as a journey.
+
+26\. Conceited — Excessively proud of oneself or one's abilities; having an exaggerated opinion of one's own importance.
+
+- He sounded conceited when he claimed to be better than everyone else.
+- A conceited person may struggle to recognize other people's achievements.
+
+27\. Conceive — To form an idea or plan in the mind; to imagine or understand something; to become pregnant.
+
+- The team conceived a new approach to reducing energy use.
+- It is difficult to conceive how quickly the technology has changed.
+
+## Quick distinctions to remember
+
+- Complex vs. complicated: Complex emphasizes many interconnected parts; complicated emphasizes difficulty in understanding or managing something. They often overlap.
+- Complexity vs. compliance: Complexity is the quality of being intricate; compliance is following rules or requirements.
+- Compliment vs. complement: A compliment is praise; a complement completes or improves something.
+- Complimentary vs. compulsory: Complimentary means praising or free of charge; compulsory means required.
+- Comply vs. compliance: Comply is the verb meaning to follow a rule; compliance is the noun.
+- Component vs. composite: A component is one part of a whole; a composite is the whole or material made from multiple parts.
+- Compose vs. comprise: To compose means to create or make up something; to comprise means to consist of or include its parts.
+- Composition vs. comprehension: Composition is the arrangement or creation of something; comprehension is understanding.
+- Compound vs. composite: A compound combines substances or elements into a distinct whole; a composite is made from separate parts or materials.
+- Comprehend vs. comprehensive: To comprehend is to understand; comprehensive means thorough or wide-ranging.
+- Compress vs. compression: Compress is a verb; compression is the process or result.
+- Comprise vs. compose: “The course comprises six modules” means the course includes them; “The six modules compose the course” means they make up the course.
+- Compromise vs. compliance: A compromise involves mutual concessions; compliance means following a requirement.
+- Compute vs. computation: Compute is a verb; computation is the calculation or processing activity.
+- Conceal vs. concede: To conceal is to hide; to concede is to admit something or give something up.
+- Conceit vs. conceited: Conceit is excessive pride; conceited describes a person who has excessive pride.
+- Conceive vs. comprehend: To conceive is to form or imagine an idea; to comprehend is to understand something.
+
+# PAGE 34
+
+1\. Concentrate — To focus attention or effort on something; to bring things together in one place; to increase the strength of a substance by removing some of its solvent.
+
+- I find it easier to concentrate when my phone is switched off.
+- The factory uses a process to concentrate the fruit juice.
+
+2\. Concept — An idea or general understanding of something.
+
+- The concept of cloud computing has transformed modern IT.
+- She explained the concept with a simple diagram.
+
+3\. Conception — The formation of an idea; the way someone understands something; the beginning of pregnancy through fertilization.
+
+- The conception of the project began with a discussion among colleagues.
+- His conception of leadership emphasizes responsibility rather than authority.
+
+4\. Concern — A feeling of worry or interest about something; a matter that affects or involves someone; to relate to or affect someone.
+
+- There is growing concern about the rising cost of living.
+- The new policy concerns all employees.
+
+5\. Concert — A public musical performance; agreement or harmony between people or groups, especially in the expression in concert.
+
+- We attended a concert by a local orchestra.
+- The two departments worked in concert to solve the problem.
+
+6\. Concerted — Planned, organized, or carried out jointly by several people or groups.
+
+- The team made a concerted effort to finish the project on time.
+- A concerted response from several agencies helped contain the emergency.
+
+7\. Concession — Something given up or allowed during a negotiation; an admission that another person is right about a point; a reduced price or special allowance.
+
+- Both sides made a concession to reach an agreement.
+- The company offered a student concession on the ticket price.
+
+8\. Concise — Brief but clear, expressing the main information in few words.
+
+- Keep your email concise and professional.
+- Her concise summary captured the main findings.
+
+9\. Conclude — To bring something to an end; to reach a decision or judgment through reasoning; to infer something from evidence.
+
+- The meeting will conclude at noon.
+- Based on the results, we concluded that the new method was more efficient.
+
+10\. Conclusive — Providing a definite answer or settling a question; decisive or final.
+
+- The investigation found no conclusive evidence of fraud.
+- Further testing is needed before we can reach a conclusive result.
+
+11\. Concrete — A strong building material made from cement, water, and aggregates; specific and definite rather than abstract; made of or covered with concrete.
+
+- The workers poured concrete for the building's foundation.
+- We need concrete examples to support the argument.
+
+12\. Concurrent — Happening, existing, or operating at the same time.
+
+- The system can process several concurrent requests.
+- She held two concurrent roles within the organization.
+
+13\. Condemn — To express strong disapproval of something; to declare someone guilty; to officially declare a building or structure unsafe.
+
+- The organization condemned the attack.
+- Inspectors condemned the building because it was structurally unsafe.
+
+14\. Condemnation — Strong disapproval or criticism; an official declaration that something is unacceptable or unsafe.
+
+- The decision drew widespread condemnation.
+- The building was closed following its official condemnation.
+
+15\. Condensation — The process by which a gas or vapor becomes liquid; the act of making information shorter or more concentrated.
+
+- Condensation formed on the cold glass.
+- The report is a condensation of the original research.
+
+16\. Condense — To change from a gas into a liquid; to make something shorter or more concentrated.
+
+- Water vapor condenses into droplets on a cold surface.
+- Please condense the report into two pages.
+
+17\. Condenser — A device that converts vapor into liquid; an optical component that concentrates light; an electrical component that stores charge, often called a capacitor in modern terminology.
+
+- The condenser converts steam back into water in the cooling system.
+- The microscope uses a condenser to focus light on the specimen.
+
+18\. Condition — The state something is in; a circumstance or requirement that must be met; to influence or train someone or something to respond in a particular way.
+
+- The car is in excellent condition despite its age.
+- Payment is a condition of receiving the service.
+
+19\. Conduct — To organize, direct, or manage an activity; to lead or guide; to transmit heat or electricity; behavior, especially as a noun.
+
+- The researcher will conduct interviews with participants.
+- Copper conducts electricity very well.
+
+20\. Conductor — A person who directs a musical performance; a person who collects fares or assists passengers on certain forms of public transport; a material or device that transmits heat or electricity.
+
+- The conductor led the orchestra through the final movement.
+- Copper is an excellent electrical conductor.
+
+21\. Cone — A three-dimensional shape with a circular base that narrows to a point; an object shaped like this.
+
+- The traffic cone warned drivers about the roadworks.
+- The ice cream was served in a waffle cone.
+
+22\. Confer — To grant or award something formally; to discuss something with another person in order to reach a decision.
+
+- The university will confer the degree at graduation.
+- The managers conferred before announcing their decision.
+
+23\. Conference — A formal meeting for discussion, consultation, or the exchange of information.
+
+- Researchers presented their findings at an international conference.
+- The team held a conference to discuss its annual goals.
+
+24\. Confess — To admit that one has done something wrong or that something is true; to make a formal declaration of faith or personal belief.
+
+- He confessed that he had made a serious mistake.
+- She confessed her doubts to a trusted friend.
+
+25\. Confession — An admission of wrongdoing or a personal truth; a formal declaration of religious faith.
+
+- His confession helped the investigators understand what had happened.
+- The ceremony included a confession of faith.
+
+## Quick distinctions to remember
+
+- Concentrate vs. concept: To concentrate is to focus or increase a substance's strength; a concept is an idea.
+- Conception vs. concept: A concept is an idea; conception is the formation of an idea or a particular way of understanding something.
+- Concern vs. concession: Concern relates to worry or interest; a concession is something yielded or allowed.
+- Concert vs. concerted: A concert is a musical performance; concerted describes a coordinated effort.
+- Concession vs. compromise: A concession is something one side gives up or allows; a compromise is an agreement involving concessions from both sides.
+- Concise vs. condense: Concise describes writing that uses few words; to condense is to make something shorter or more concentrated.
+- Conclude vs. conclusive: To conclude is to finish or reach a judgment; conclusive means decisive or providing a definite answer.
+- Concrete vs. concept: Concrete is a building material or means specific and tangible; a concept is an abstract idea.
+- Concurrent vs. concerted: Concurrent means happening at the same time; concerted means coordinated or jointly planned.
+- Condemn vs. condensation: To condemn is to express strong disapproval or declare something unsafe; condensation is a change from gas to liquid or a shortened version of information.
+- Condense vs. condenser: Condense is a verb; a condenser is a device that performs a condensation or light-concentrating function.
+- Condition vs. conduct: Condition means a state or requirement; conduct means to direct an activity or transmit energy, and can also mean behavior as a noun.
+- Conduct vs. conductor: Conduct is a verb meaning to lead or manage; a conductor is a person or material that performs a conducting role.
+- Confer vs. conference: To confer is to grant something or discuss a matter; a conference is a formal meeting.
+- Confess vs. concession: To confess is to admit something; a concession is something yielded or an acknowledgment made during discussion.
+
+# PAGE 35
+
+1\. Confide — To tell someone private information because you trust them.
+
+- She confided her concerns to a close friend.
+- You can confide in your manager if you have a serious workplace problem.
+
+2\. Confidence — A feeling of trust, certainty, or belief in oneself or someone else; a state of trust in which information is kept private.
+
+- Practicing interviews helped him gain confidence.
+- The client shared the information in confidence.
+
+3\. Confident — Feeling sure of oneself or certain about something.
+
+- She felt confident before the presentation.
+- I am confident that we can finish the task on time.
+
+4\. Confidential — Intended to be kept private or secret; restricted to people who are authorized to know.
+
+- The document contains confidential financial information.
+- Please keep the customer's details confidential.
+
+5\. Confine — To restrict someone or something within a particular space or limit; to limit something to a specific subject or area.
+
+- The injured bird was confined to a small enclosure while it recovered.
+- Try to confine your presentation to the main findings.
+
+6\. Confinement — The state of being restricted to a place or within limits; the act of keeping someone or something confined.
+
+- The animal remained in confinement until it recovered.
+- The prisoner complained about the conditions of his confinement.
+
+7\. Confirm — To establish that something is true or correct; to verify an arrangement or make it definite.
+
+- Please confirm your attendance by Thursday.
+- The test results confirmed the initial diagnosis.
+
+8\. Confirmation — Evidence or a statement that establishes something as true; the act of verifying or making an arrangement definite.
+
+- We received confirmation of the hotel reservation.
+- The second test provided confirmation of the initial result.
+
+9\. Conflict — A disagreement, struggle, or fight; a situation in which things are incompatible or occur at the same time.
+
+- The two departments had a conflict over the budget.
+- I cannot attend the meeting because it conflicts with another appointment.
+
+10\. Conform — To follow rules, standards, expectations, or established patterns.
+
+- All products must conform to safety standards.
+- He felt pressure to conform to the expectations of his peers.
+
+11\. Conformity — The act or state of following rules, standards, or social expectations; similarity in form or behavior.
+
+- The school encourages independent thinking rather than blind conformity.
+- The design must show conformity with the approved specifications.
+
+12\. Confront — To face a difficult situation or person directly; to challenge or oppose someone.
+
+- We need to confront the problem before it becomes worse.
+- She confronted her colleague about the inaccurate report.
+
+13\. Confrontation — A direct meeting or encounter, especially one involving disagreement or hostility.
+
+- The disagreement led to a confrontation between the two managers.
+- He tried to avoid a confrontation by speaking calmly.
+
+14\. Confuse — To make someone uncertain or unable to understand something; to mistake one person or thing for another.
+
+- The complicated instructions confused the new employees.
+- People sometimes confuse correlation with causation.
+
+15\. Confusion — A state of uncertainty or lack of understanding; disorder caused by people or things being mixed up.
+
+- There was confusion about the meeting's starting time.
+- The similar names caused confusion among the customers.
+
+16\. Congestion — An overcrowded or blocked condition, especially involving traffic, passages, or body systems.
+
+- Heavy traffic congestion delayed our arrival.
+- The doctor recommended treatment to relieve nasal congestion.
+
+17\. Congratulation — An expression of praise or pleasure in response to someone's success or good fortune; usually used in the plural, congratulations.
+
+- Congratulations on passing your certification exam!
+- She received many congratulations after her promotion.
+
+18\. Congress — A formal meeting or assembly of representatives; the national legislative body in some countries, including the United States.
+
+- The delegates gathered for an international medical congress.
+- Congress debated the proposed changes to the law.
+
+19\. Congressman — A man who is a member of the United States Congress, especially the House of Representatives; the gender-neutral term member of Congress is often preferred.
+
+- The congressman held a meeting with local residents.
+- A member of Congress introduced a bill addressing the issue.
+
+20\. Conjunction — The joining or combination of things; a word that connects words, phrases, or clauses in grammar.
+
+- The success of the project depended on a conjunction of several factors.
+- In the sentence “I stayed home because it rained,” because is a conjunction.
+
+21\. Connect — To join or link things together; to establish contact or a relationship.
+
+- Connect the printer to your computer using a USB cable.
+- The training program connects students with potential employers.
+
+22\. Connection — A link or relationship between things or people; a transfer between transportation services; a communication link.
+
+- Researchers found a connection between sleep and memory.
+- I have a connecting flight in Istanbul.
+
+23\. Conquer — To gain control over a place or people by force; to overcome a difficult challenge or fear.
+
+- The army attempted to conquer the neighboring territory.
+- She worked hard to conquer her fear of public speaking.
+
+24\. Conquest — The act of taking control of a place or people by force; a major achievement in overcoming something difficult.
+
+- The conquest of the region changed its political history.
+- Completing the demanding course felt like a personal conquest.
+
+25\. Conscience — A person's inner sense of right and wrong that guides moral decisions.
+
+- His conscience would not allow him to lie about the mistake.
+- She acted according to her conscience, even though the decision was unpopular.
+
+26\. Conscientious — Careful, responsible, and thorough in one's work or duties.
+
+- She is a conscientious employee who checks every detail.
+- A conscientious researcher records results accurately.
+
+## Quick distinctions to remember
+
+- Confide vs. confidential: To confide is to share private information with someone you trust; confidential describes information that must remain private.
+- Confidence vs. confident: Confidence is a noun; confident is an adjective.
+- Confident vs. conscientious: Confident means sure of oneself; conscientious means careful and responsible.
+- Confine vs. confront: To confine is to restrict; to confront is to face a person or problem directly.
+- Confinement vs. confidential: Confinement is the state of being restricted; confidential means private or secret.
+- Confirm vs. conform: To confirm is to verify; to conform is to follow a rule or standard.
+- Confirmation vs. congratulation: Confirmation establishes that something is true or arranged; congratulations express pleasure at someone's success.
+- Conflict vs. confrontation: Conflict is a disagreement or incompatibility; confrontation is a direct encounter, often involving conflict.
+- Confuse vs. conflict: To confuse is to make someone uncertain; to conflict is to disagree or be incompatible.
+- Congestion vs. confusion: Congestion involves overcrowding or blockage; confusion involves uncertainty or disorder.
+- Congress vs. congressman: Congress is an assembly or legislative body; a congressman is a male member of the US Congress.
+- Conjunction vs. connection: A conjunction joins grammatical elements or describes a joining; a connection is a link or relationship.
+- Conquer vs. conquest: Conquer is a verb; conquest is a noun.
+- Conscience vs. consciousness: Conscience is the inner sense of right and wrong; consciousness is awareness of oneself or one's surroundings.
+
+# PAGE 36
+
+1\. Conscious — Awake and aware of one's surroundings; aware of a particular fact, feeling, or situation.
+
+- The patient was conscious and able to answer questions.
+- She is conscious of the need to improve her presentation skills.
+
+2\. Consciousness — The state of being awake and aware; awareness or sensitivity to a particular issue or experience.
+
+- The patient gradually regained consciousness after the operation.
+- The campaign raised public consciousness about environmental problems.
+
+3\. Consecutive — Following one after another without interruption.
+
+- She worked for five consecutive days.
+- The team won three consecutive matches.
+
+4\. Consent — To give permission or agree to something; permission or agreement given voluntarily.
+
+- The patient must consent to the procedure before it begins.
+- You need written consent before sharing someone's personal information.
+
+5\. Consequence — A result or effect of an action or event; importance or significance.
+
+- One consequence of poor planning was a delayed launch.
+- Every employee must understand the consequences of ignoring safety rules.
+
+6\. Consequently — As a result; therefore.
+
+- The roads were flooded; consequently, the school closed for the day.
+- He missed the deadline and consequently lost the opportunity.
+
+7\. Conservation — The protection and careful management of natural resources, wildlife, or cultural heritage; the prevention of waste or loss.
+
+- Water conservation is essential in regions with limited rainfall.
+- The museum supports the conservation of historic buildings.
+
+8\. Conservative — Favoring traditional values or established practices; cautious about change or risk; moderate in amount or degree.
+
+- The organization takes a conservative approach to financial risk.
+- They chose a conservative estimate of the project's costs.
+
+9\. Considerable — Fairly large or significant in amount, size, degree, or importance.
+
+- The project requires considerable financial investment.
+- She has considerable experience in software development.
+
+10\. Considerably — By a significant amount or degree; substantially.
+
+- The new process considerably reduced waiting times.
+- The second proposal is considerably more expensive than the first.
+
+11\. Considerate — Thoughtful about other people's feelings, needs, or circumstances.
+
+- It was considerate of him to call before visiting.
+- A considerate manager listens to employees' concerns.
+
+12\. Consideration — Careful thought or attention; concern for other people's needs; something taken into account when making a decision.
+
+- After careful consideration, she accepted the job offer.
+- We must take travel costs into consideration when planning the trip.
+
+13\. Consign — To send or deliver something to someone for a particular purpose; to transfer goods to another person or business, often for sale.
+
+- The farmer consigned the products to a local distributor.
+- The gallery agreed to consign several paintings for sale.
+
+14\. Consist — To be made up of particular parts; to have a particular nature or basis, often in the phrase consist of or consist in.
+
+- The team consists of six engineers and two analysts.
+- True progress consists in learning from mistakes.
+
+15\. Consistency — The quality of remaining uniform, reliable, or in agreement; the thickness or texture of a substance.
+
+- Consistency in your daily practice will improve your English.
+- Add more water if you want a thinner consistency for the sauce.
+
+16\. Consistent — Remaining the same or behaving in a reliable way; in agreement with something else.
+
+- She delivers consistent results across different projects.
+- Your explanation should be consistent with the evidence.
+
+17\. Console — To comfort someone who is sad or disappointed; a device used to operate a system or play video games.
+
+- He tried to console his friend after the rejection.
+- The technician used the control console to monitor the equipment.
+
+18\. Consolidate — To combine things into a stronger or more unified whole; to strengthen or make something more secure.
+
+- The company plans to consolidate its regional offices.
+- Reviewing your notes helps consolidate what you have learned.
+
+19\. Consonant — Compatible or in agreement with something; a speech sound produced with some obstruction of airflow, or a letter representing such a sound.
+
+- The proposal is consonant with the company's long-term goals.
+- In English, b, d, and m are consonants.
+
+20\. Conspicuous — Easy to notice; clearly visible or attracting attention.
+
+- The bright red sign was conspicuous from a distance.
+- His absence was conspicuous during the important meeting.
+
+21\. Conspiracy — A secret plan by a group to commit an illegal or harmful act; the act of conspiring.
+
+- The investigators uncovered a conspiracy to defraud investors.
+- The novel describes a conspiracy against the royal family.
+
+22\. Constant — Occurring continuously or repeatedly; remaining unchanged; a value that does not change.
+
+- The machine makes a constant noise.
+- In the equation \\(y = 2x + 5\\), the number 5 is a constant term.
+
+23\. Constantly — Continuously, repeatedly, or very frequently.
+
+- He constantly checks his phone during meetings.
+- The software is constantly updated to fix problems.
+
+24\. Constituent — A part or component of something; a person represented by an elected official.
+
+- Water is a major constituent of the human body.
+- The representative met with constituents to discuss local concerns.
+
+25\. Constitute — To make up or form something; to be regarded as something; to establish or create.
+
+- These three departments constitute the company's main operating units.
+- Repeatedly ignoring safety rules may constitute a serious violation.
+
+26\. Constitution — The fundamental set of principles or laws governing a country or organization; the physical makeup or condition of a person or thing.
+
+- The constitution defines the powers of the government.
+- Regular exercise can improve your physical constitution.
+
+## Quick distinctions to remember
+
+- Conscious vs. consciousness: Conscious is an adjective describing awareness; consciousness is the state or quality of being aware.
+- Consecutive vs. constant: Consecutive means following one after another without interruption; constant means continuing or remaining unchanged.
+- Consent vs. conscientious: Consent means permission or agreement; conscientious means careful and responsible.
+- Consequence vs. consequently: A consequence is a result; consequently means “as a result.”
+- Conservation vs. conservative: Conservation is the protection or careful use of something; conservative describes a preference for tradition, caution, or limited risk.
+- Considerable vs. considerably: Considerable is an adjective; considerably is an adverb.
+- Considerate vs. consideration: Considerate describes someone who thinks about others' needs; consideration is careful thought or attention.
+- Consign vs. consist: To consign is to send or transfer something; to consist is to be made up of something.
+- Consistency vs. consistent: Consistency is a noun; consistent is an adjective.
+- Console vs. consolation: To console is to comfort someone; consolation is comfort or something that reduces sadness.
+- Consolidate vs. constitute: To consolidate is to combine or strengthen; to constitute is to form or make up.
+- Consonant vs. constant: Consonant means compatible or refers to a speech sound; constant means continuing or unchanged.
+- Conspicuous vs. conscious: Conspicuous means easy to notice; conscious means aware.
+- Conspiracy vs. consequence: A conspiracy is a secret plan for wrongdoing; a consequence is a result.
+- Constituent vs. constitute: A constituent is a part or represented person; to constitute is to form or make up something.
+- Constitution vs. constitutionality: A constitution is a foundational set of laws or principles; constitutionality is the quality of being consistent with a constitution.
+
+# PAGE 37
+
+1\. Constraint — Something that limits freedom, choices, or actions; a restriction or limitation.
+
+- Our budget is the main constraint on the project.
+- The software was designed to work within the constraints of the available hardware.
+
+2\. Construct — To build or create something by putting parts together; an idea or concept created for analysis or discussion.
+
+- The engineers will construct a new bridge across the river.
+- Researchers use the concept of intelligence as a theoretical construct.
+
+3\. Construction — The process of building something; the structure that has been built; the way something is formed or expressed.
+
+- Construction of the new hospital will begin next year.
+- The sentence has an unusual grammatical construction.
+
+4\. Consult — To seek advice or information from someone; to consider a source before making a decision.
+
+- You should consult a specialist before making a major investment.
+- Please consult the user manual if the device stops working.
+
+5\. Consultant — A professional who provides expert advice in a particular field.
+
+- The company hired an IT consultant to improve its network security.
+- She works as a management consultant for international businesses.
+
+6\. Consume — To eat or drink something; to use up resources, energy, or time; to absorb someone's attention or interest completely.
+
+- The children consumed all the sandwiches.
+- The application consumes too much memory when several processes run simultaneously.
+
+7\. Consumer — A person or organization that buys or uses goods and services.
+
+- Consumers increasingly compare prices online before buying products.
+- The report examines consumer behavior in the retail industry.
+
+8\. Consumption — The act of eating, drinking, or using something; the amount of a resource used.
+
+- Excessive sugar consumption can contribute to health problems.
+- The new system reduces electricity consumption.
+
+9\. Contact — To communicate or get in touch with someone; a person with whom one communicates; physical touching or connection.
+
+- Contact the support team if the problem continues.
+- She has a useful contact at the recruitment agency.
+
+10\. Contain — To hold something within a space or boundary; to include something as part of a whole; to control or prevent something from spreading.
+
+- This bottle contains half a liter of water.
+- The emergency team worked to contain the fire.
+
+11\. Container — An object used to hold, store, or transport something; in computing, an isolated environment for running software.
+
+- Store the documents in a waterproof container.
+- The developers packaged the application in a software container.
+
+12\. Contemplate — To think deeply or carefully about something; to consider doing something.
+
+- She sat quietly to contemplate her future.
+- The company is contemplating opening a new branch.
+
+13\. Contemplation — Deep or sustained thought; careful consideration of something; meditation.
+
+- After much contemplation, he decided to change careers.
+- The quiet garden provided a peaceful place for contemplation.
+
+14\. Contemporary — Belonging to the present time; living or existing during the same period as another person or thing.
+
+- The museum displays contemporary art.
+- Shakespeare was a contemporary of several important Elizabethan writers.
+
+15\. Contempt — A strong feeling of disrespect or scorn; in law, disobedience to or disrespect for a court or its authority.
+
+- He spoke about the dishonest practice with contempt.
+- The judge warned the witness that refusing to obey the court could result in contempt of court.
+
+16\. Contemptuous — Showing or expressing strong disrespect or scorn toward someone or something.
+
+- She gave him a contemptuous look after his rude remark.
+- His contemptuous attitude made cooperation difficult.
+
+17\. Content — The material contained in something, such as text, images, or information; the amount of a substance in something; satisfied and at ease, when used as an adjective.
+
+- The website's content is updated every week.
+- The label lists the sugar content of the drink.
+
+18\. Contest — To compete for something; to challenge or dispute a decision or claim; a competition.
+
+- Several teams will contest the championship.
+- The company decided to contest the legal claim.
+
+19\. Context — The circumstances or surrounding information that help explain the meaning of something.
+
+- You need to understand the context before interpreting the statement.
+- The word has a different meaning in this context.
+
+20\. Continent — One of the Earth's major landmasses, such as Africa, Asia, or Europe.
+
+- Africa is the second-largest continent by area.
+- They traveled across the continent by train.
+
+21\. Continental — Relating to a continent or its people, geography, or characteristics; sometimes relating specifically to mainland Europe.
+
+- The country has a continental climate with hot summers and cold winters.
+- The hotel serves a continental breakfast with bread, pastries, and coffee.
+
+22\. Contingency — A possible future event or situation, especially one that is uncertain and must be prepared for.
+
+- The project plan includes a contingency for unexpected delays.
+- We keep emergency funds for any financial contingency.
+
+23\. Contract — To become smaller or tighter; to acquire an illness or obligation; a formal agreement between parties.
+
+- Metal tends to contract as it cools.
+- Both companies signed a contract for the supply of equipment.
+
+24\. Contradict — To state that something is untrue; to oppose or conflict with a statement, claim, or fact.
+
+- The witness's account contradicted the official report.
+- The new evidence contradicts the original theory.
+
+25\. Contradiction — A statement or fact that opposes another; a situation in which two claims cannot both be true.
+
+- There is a contradiction between his words and his actions.
+- The report contains a contradiction that needs to be resolved.
+
+26\. Contrary — Opposite in nature, direction, or meaning; opposing an expectation or belief.
+
+- Contrary to expectations, the smaller team won the match.
+- Their interests were contrary to those of the opposing group.
+
+27\. Contrast — A noticeable difference between things; to compare things to emphasize their differences.
+
+- The contrast between the two designs is obvious.
+- The report contrasts the performance of the old system with that of the new one.
+
+## Quick distinctions to remember
+
+- Constraint vs. construct: A constraint is a limitation; to construct is to build or create.
+- Construct vs. construction: Construct is a verb; construction is the process, result, or arrangement of building.
+- Consult vs. consultant: To consult is to seek advice; a consultant is someone who provides expert advice.
+- Consume vs. consumption: Consume is a verb; consumption is the act or amount of using something.
+- Consumer vs. consumption: A consumer is a person or organization that uses goods or services; consumption is the act or amount of using them.
+- Contact vs. connection: Contact often means communicating with someone or a person you can reach; connection is a broader link or relationship.
+- Contain vs. container: Contain is a verb meaning to hold or include; a container is an object or software environment that holds something.
+- Contemplate vs. contemplation: Contemplate is a verb meaning to think deeply; contemplation is the process of deep thought.
+- Contemporary vs. content: Contemporary means modern or from the same period; content means material contained in something or satisfied.
+- Contempt vs. contemptuous: Contempt is the feeling of disrespect; contemptuous describes someone or something expressing that feeling.
+- Contest vs. contrast: A contest is a competition or a challenge to a claim; contrast emphasizes differences.
+- Context vs. content: Context is the surrounding information that explains meaning; content is the material itself.
+- Continent vs. continental: A continent is a major landmass; continental is an adjective relating to a continent.
+- Contingency vs. constraint: A contingency is a possible future event; a constraint is a limitation that restricts what can be done.
+- Contract vs. contradict: To contract is to shrink or enter into an agreement; to contradict is to oppose a statement or claim.
+- Contradiction vs. contrary: A contradiction is an opposing statement or inconsistency; contrary describes something opposite or opposed.
+- Contrary vs. contrast: Contrary means opposite or opposing; contrast is the difference between things or the act of comparing those differences.
+
+# PAGE 38
+
+1\. Contribute — To give or provide something, such as money, effort, or information; to help cause a result.
+
+- Everyone contributed ideas during the planning meeting.
+- Regular exercise contributes to better physical fitness.
+
+2\. Contribution — Something given or done to help achieve a result; the act of contributing; a payment required for a particular purpose.
+
+- Her contribution helped the team finish the project.
+- Employees make monthly contributions to the retirement plan.
+
+3\. Controversial — Causing disagreement or strong public debate; likely to be disputed.
+
+- The government introduced a controversial new policy.
+- His controversial comments sparked a heated discussion.
+
+4\. Controversy — Public or serious disagreement about an issue, decision, or statement.
+
+- The decision caused controversy among local residents.
+- The scientific controversy continued until further evidence became available.
+
+5\. Convenience — The quality of being easy, useful, or suitable for a person's needs; something that makes life easier.
+
+- Online banking offers convenience to busy customers.
+- For your convenience, the documents are available in digital format.
+
+6\. Convenient — Easy to use or access; suitable for someone's needs, schedule, or circumstances.
+
+- The new office is conveniently located near the train station.
+- Is tomorrow afternoon a convenient time for our meeting?
+
+7\. Convention — A customary practice or accepted way of behaving; a formal meeting of people with shared interests; an agreement between parties or countries.
+
+- Wearing formal clothing at the ceremony is a long-standing convention.
+- The company presented its new products at a technology convention.
+
+8\. Conventional — Based on established customs, traditions, or accepted methods; ordinary or traditional rather than innovative.
+
+- The company uses conventional marketing methods.
+- They chose a conventional design rather than an experimental one.
+
+9\. Conversant — Familiar with a subject through study or experience; knowledgeable enough to discuss it.
+
+- Applicants should be conversant with basic networking concepts.
+- She is conversant with the latest data analysis tools.
+
+10\. Conversation — An informal exchange of ideas, information, or feelings between people.
+
+- We had a useful conversation about career opportunities.
+- The conversation shifted from education to technology.
+
+11\. Converse — To talk or engage in conversation; in logic and mathematics, to reverse the terms of a statement or relation.
+
+- The visitors conversed with local residents about their traditions.
+- In a mathematical discussion, the converse of a statement may need to be tested separately.
+
+12\. Conversely — In the opposite way or direction; used to introduce a contrasting or reversed relationship.
+
+- Some employees prefer working remotely; conversely, others prefer the office.
+- Higher prices may reduce demand, while lower prices can have the converse effect.
+
+13\. Conversion — The process of changing something from one form, use, or system to another; a change in beliefs or religious faith.
+
+- The conversion of the document to PDF took only a few seconds.
+- The company measured the conversion of website visitors into paying customers.
+
+14\. Convert — To change something into another form, system, or use; to persuade someone to change their beliefs.
+
+- You can convert the file into a spreadsheet.
+- The campaign aims to convert more visitors into customers.
+
+15\. Convey — To communicate an idea, feeling, or message; to carry or transport something from one place to another; to transfer property formally.
+
+- Her tone conveyed confidence and professionalism.
+- The pipeline conveys water to nearby farms.
+
+16\. Conveyance — The act of carrying or transferring something; a vehicle or other means of transportation; the legal transfer of property.
+
+- The conveyance of goods was delayed by bad weather.
+- The legal document records the conveyance of the property to its new owner.
+
+17\. Convict — To find someone guilty of a crime through a legal process; a person who has been found guilty of a crime, used as a noun.
+
+- The court convicted the defendant of fraud.
+- The former convict spoke about his efforts to rebuild his life.
+
+18\. Conviction — A formal finding that someone is guilty of a crime; a firmly held belief or opinion.
+
+- The conviction was overturned after new evidence emerged.
+- She expressed her conviction that education should be accessible to everyone.
+
+19\. Convince — To persuade someone that something is true or to get someone to agree to an idea or course of action.
+
+- The data convinced the manager to approve the proposal.
+- I tried to convince my colleague that the new method was more efficient.
+
+20\. Convinced — Certain that something is true; persuaded to believe or do something.
+
+- I am convinced that consistent practice will improve your English.
+- She was convinced by the evidence presented during the meeting.
+
+21\. Cooperate — To work or act together toward a shared goal.
+
+- The two departments cooperated to resolve the customer complaint.
+- Researchers must cooperate when a project requires several areas of expertise.
+
+22\. Cooperation — The act or practice of working together toward a shared purpose.
+
+- International cooperation is important when addressing global challenges.
+- The project succeeded because of close cooperation between the teams.
+
+23\. Cooperative — Willing to work with others; involving people or groups working together; an organization jointly owned or managed by its members.
+
+- The staff were cooperative during the inspection.
+- Local farmers formed a cooperative to market their products together.
+
+24\. Coordinate — To organize different people, activities, or parts so that they work together effectively; to match or harmonize.
+
+- She coordinates the schedules of all team members.
+- The designer coordinated the colors of the furniture and curtains.
+
+25\. Coordination — The organization and synchronization of different activities, people, or parts; the ability to move body parts smoothly and effectively.
+
+- Good coordination between departments prevents delays.
+- The athlete has excellent hand-eye coordination.
+
+26\. Cordial — Warm, friendly, and polite, especially in relationships or formal interactions.
+
+- The manager maintained a cordial relationship with the supplier.
+- Their discussion was cordial despite their disagreement.
+
+## Quick distinctions to remember
+
+- Contribute vs. contribution: Contribute is a verb; contribution is a noun.
+- Controversial vs. controversy: Controversial describes something that causes disagreement; controversy is the disagreement itself.
+- Convenience vs. convenient: Convenience is a noun; convenient is an adjective.
+- Convention vs. conventional: A convention is a custom, agreement, or formal gathering; conventional describes something based on accepted customs or methods.
+- Conversant vs. conversation: Conversant means knowledgeable about a subject; conversation is an exchange of ideas or information.
+- Conversation vs. converse: Conversation is a noun; converse is a verb meaning to talk.
+- Conversely vs. contrary: Conversely introduces an opposite or reversed relationship; contrary means opposite or opposed.
+- Conversion vs. convert: Conversion is the process or result of changing something; convert is the verb.
+- Convert vs. convey: To convert is to change something into another form; to convey is to communicate or transport something.
+- Convey vs. conveyance: Convey is a verb; conveyance is the act of transferring something, a means of transport, or a legal transfer of property.
+- Convict vs. conviction: To convict is to find someone guilty; a conviction is the legal finding or a firmly held belief.
+- Convince vs. convinced: To convince is to persuade; convinced describes someone who has been persuaded or is certain.
+- Cooperate vs. cooperation: Cooperate is a verb; cooperation is the act of working together.
+- Cooperative vs. coordination: Cooperative describes willingness or joint action; coordination is the organization of activities so they work together effectively.
+- Coordinate vs. coordination: Coordinate is a verb; coordination is the process or result of organizing things together.
+- Cordial vs. cooperative: Cordial means warm and polite; cooperative means willing to work with others.
+
+---
