@@ -5413,3 +5413,1113 @@ Practice challenge: Fill in the blanks without looking back.
 - Cordial vs. cooperative: Cordial means warm and polite; cooperative means willing to work with others.
 
 ---
+
+# PAGE 39 TO 46
+## Day 7
+
+# PAGE 39
+
+1\. Core — The central, basic, or most important part of something; the essence.
+
+- Trust is at the core of every successful relationship.
+- We need to understand the core problem before finding a solution.
+
+2\. Cork — The lightweight, soft, elastic material found in the outer bark of cork oak trees; commonly used to seal bottles.
+
+- She put the cork back into the wine bottle.
+- The noticeboard is made of cork, so you can pin messages to it.
+
+3\. Corn — A cereal plant that produces grains; also used to refer to a small, hard particle in some contexts.
+
+- Farmers grow corn in large fields.
+- A single grain of corn was stuck between my teeth.
+
+4\. Corner — The point or area where two lines, edges, or surfaces meet; the place where two streets meet.
+
+- There is a small table in the corner of the room.
+- Turn left at the next corner.
+
+5\. Corporate — Related to a corporation or large company; shared or organized as one group.
+
+- She has several years of corporate experience.
+- The company organized a corporate event for its employees.
+
+6\. Corporation — A legally established company or business organization.
+
+- The corporation employs thousands of people.
+- She works for an international technology corporation.
+
+7\. Correlate — To have a connection or relationship with something; to show that two things are related.
+
+- Higher education levels often correlate with higher incomes.
+- Researchers tried to correlate sleep patterns with academic performance.
+
+8\. Correlation — A relationship or connection between two or more things, especially when they change together.
+
+- The study found a strong correlation between exercise and better sleep.
+- Correlation does not necessarily mean causation.
+
+9\. Correspond — To communicate by exchanging messages or letters; to match, agree, or be similar.
+
+- We used to correspond by email when she lived abroad.
+- The information in the report does not correspond with the actual results.
+
+10\. Correspondence — Communication through letters or messages; a similarity or connection between two things.
+
+- I have kept all our email correspondence.
+- There is a close correspondence between the two reports.
+
+11\. Correspondent — A journalist who reports news from a particular place or on a particular subject; someone who exchanges letters or messages.
+
+- The foreign correspondent reported live from the conflict zone.
+- I have been a regular correspondent with my former professor.
+
+12\. Corresponding — Matching, equivalent, or connected to something; occurring together.
+
+- Please write your name in the corresponding box.
+- The two departments have corresponding responsibilities.
+
+13\. Corrode — To gradually destroy or damage a material, especially metal, through a chemical reaction.
+
+- Salt water can corrode metal pipes.
+- Rust slowly corrodes the iron gate.
+
+14\. Corrosion — The gradual destruction of metal or another material through chemical reactions; deterioration.
+
+- The engineer inspected the bridge for signs of corrosion.
+- Regular maintenance helps prevent corrosion.
+
+15\. Corrupt — Dishonest or involved in bribery; damaged, spoiled, or morally degraded.
+
+- The official was accused of being corrupt.
+- A virus can corrupt files stored on your computer.
+
+16\. Corruption — Dishonest or illegal behavior, especially involving bribery; the process of becoming damaged or spoiled.
+
+- The government promised to fight corruption.
+- The corruption of the data made the file impossible to use.
+
+17\. Cosmic — Related to the universe or outer space; extremely large or vast.
+
+- Scientists study cosmic radiation.
+- The cost of the project was on a cosmic scale.
+
+18\. Cosmopolitan — Including people, ideas, or influences from many different countries and cultures; sophisticated and internationally minded.
+
+- Cairo is a cosmopolitan city with many different cultures.
+- She has a cosmopolitan outlook because she has lived abroad.
+
+19\. Cosmos — The universe considered as an organized and interconnected whole.
+
+- Ancient philosophers tried to understand the cosmos.
+- The documentary explores the mysteries of the cosmos.
+
+20\. Couch — A sofa or comfortable seat for several people; to express something using particular words or language.
+
+- I fell asleep on the couch while watching television.
+- He couched his criticism in polite language.
+
+21\. Counsel — To give advice or guidance; advice given by someone knowledgeable or experienced.
+
+- My teacher counseled me to continue my studies.
+- She sought legal counsel before signing the contract.
+
+22\. Countenance — To approve of, tolerate, or support something; someone's facial expression or appearance.
+
+- The manager would not countenance dishonest behavior.
+- His tired countenance showed that he had not slept well.
+
+23\. Counter — A flat surface where transactions take place or goods are served; something that opposes or responds to another action.
+
+- Please pay for your groceries at the counter.
+- The team developed a counter to the opponent's strategy.
+
+24\. Countermand — To cancel or reverse a previous order or instruction.
+
+- The manager countermanded the decision after receiving new information.
+- The officer countermanded the original order.
+
+25\. Counterpart — A person or thing that has the same role or function as another in a different place or organization.
+
+- I spoke with my counterpart at the London office.
+- The Egyptian minister met with her French counterpart.
+
+26\. Countless — Too many to count; extremely numerous.
+
+- Countless people attended the concert.
+- She has made countless mistakes but continues to learn.
+
+27\. Couple — Two people or things considered together; two people in a romantic relationship; to connect or join things.
+
+- A young couple moved into the apartment next door.
+- I need a couple of days to finish the project.
+
+## Quick distinctions to remember
+
+- Core = the most important part; corner = where two edges or streets meet.
+- Corporate = related to a company; corporation = the company itself.
+- Correlate = show or have a relationship; correlation = the relationship.
+- Correspond = communicate or match; correspondence = the communication or similarity; correspondent = the person reporting or communicating.
+- Corrode = gradually damage; corrosion = the damage process.
+- Corrupt = dishonest or damaged; corruption = dishonesty or the process of damaging something.
+- Cosmic = related to the universe; cosmopolitan = international and culturally diverse; cosmos = the universe.
+- Counsel = advice or advise; countenance = tolerate, approve, or facial expression.
+- Counter = a surface or opposing response; countermand = cancel an order; counterpart = an equivalent person or thing.
+- Countless = too many to count; a couple = two or approximately two.
+
+# PAGE 40
+
+1\. Court — An enclosed outdoor area surrounded by walls or buildings; also a place where legal cases are heard.
+
+- The children were playing in the courtyard behind the house.
+- The judge listened carefully to the evidence in court.
+
+2\. Courteous — Polite, respectful, and considerate toward other people.
+
+- The receptionist was courteous to every visitor.
+- It is important to remain courteous even when you disagree.
+
+3\. Courtesy — Polite and respectful behavior; a kind action; sometimes, something provided as a gesture of goodwill.
+
+- He treated the elderly woman with courtesy.
+- The hotel offers a complimentary courtesy shuttle to the airport.
+
+4\. Cover — To place something over another thing; to protect or hide; to include or report a subject.
+
+- Cover the food before putting it in the refrigerator.
+- The journalist will cover the election.
+
+5\. Coverage — The extent to which something is included, protected, or reported; the area reached by a service or signal.
+
+- The insurance provides coverage for medical emergencies.
+- Mobile coverage is weak in this remote area.
+
+6\. Coward — A person who lacks the courage to face danger or difficulty.
+
+- He called the soldier a coward for running away.
+- A coward avoids responsibility when things become difficult.
+
+7\. Crab — A sea animal with a hard shell and claws; in rowing, a mistake where an oar catches incorrectly in the water.
+
+- We ordered fresh crab at the seafood restaurant.
+- The rower caught a crab when his oar became stuck in the water.
+
+8\. Crack — To break or split without completely separating; to hit or strike; to solve a difficult problem; a narrow opening or split.
+
+- Be careful not to crack the glass.
+- The detective finally cracked the case.
+
+9\. Cradle — A small bed for a baby, often designed to rock; the earliest stage or origin of something.
+
+- The baby was sleeping peacefully in the cradle.
+- Greece is often described as the cradle of Western civilization.
+
+10\. Craft — A skill or activity involving making things by hand; an object made by hand; a boat or ship.
+
+- She learned the craft of traditional pottery.
+- The fishermen returned to shore in a small craft.
+
+11\. Crash — A violent collision or sudden failure; to hit something with great force; to stop working suddenly.
+
+- Two cars were involved in a serious crash.
+- My computer crashed while I was editing the document.
+
+12\. Crate — A large container, usually made of wood or plastic, used for transporting or storing goods.
+
+- The workers packed the bottles into a wooden crate.
+- We received a crate of fresh vegetables.
+
+13\. Crave — To have a very strong desire for something.
+
+- I often crave chocolate after dinner.
+- After working for months without a break, she craved a vacation.
+
+14\. Crawl — To move on hands and knees or close to the ground; to move very slowly.
+
+- The baby has just learned to crawl.
+- Traffic was crawling during rush hour.
+
+15\. Crazy — Mentally ill in older or informal usage; extremely unusual, unreasonable, or enthusiastic about something in everyday speech.
+
+- That is a crazy idea, but it might actually work.
+- He is crazy about football and watches every match.
+
+16\. Create — To make or produce something new; to cause a particular situation or result.
+
+- She wants to create her own mobile application.
+- The new policy could create problems for small businesses.
+
+17\. Creation — The act of making something; something that has been made or brought into existence.
+
+- The creation of the website took three months.
+- This painting is her most famous creation.
+
+18\. Credit — An arrangement allowing someone to buy now and pay later; money available to borrow; recognition for an achievement.
+
+- I bought the laptop on credit.
+- She deserves credit for completing the project.
+
+19\. Creek — A small stream or narrow natural waterway.
+
+- We walked along a quiet creek in the forest.
+- The children spent the afternoon playing beside the creek.
+
+20\. Creep — To move slowly and quietly, often to avoid being noticed; to develop or increase gradually.
+
+- The cat crept toward the bird.
+- Prices have started to creep upward.
+
+21\. Crew — A group of people working together on a ship, aircraft, spacecraft, or other organized operation.
+
+- The flight crew welcomed the passengers.
+- The film crew arrived early to prepare the equipment.
+
+22\. Cricket — A team sport played with bats, a ball, and wickets; also, a small insect known for its chirping sound.
+
+- Cricket is extremely popular in countries such as India and Pakistan.
+- I could hear a cricket singing outside my window.
+
+23\. Criminal — A person who commits a crime; related to crime or illegal activity.
+
+- The police arrested the criminal.
+- The company was involved in criminal activities.
+
+24\. Crimson — A deep, rich red color; sometimes associated with blood.
+
+- The sky turned crimson at sunset.
+- She wore a crimson dress to the celebration.
+
+25\. Cripple — An outdated and often offensive term for a person with a physical disability; as a verb, to severely damage or weaken something.
+
+- The accident crippled the company's ability to operate.
+- The storm crippled the local transportation system.
+
+26\. Crisis — A time of serious danger, difficulty, or uncertainty; a decisive turning point.
+
+- The country faced a major economic crisis.
+- The company hired a new manager during the crisis.
+
+## Quick distinctions to remember
+
+- Court = a legal institution or enclosed area; courteous = polite; courtesy = polite behavior.
+- Cover = put over, protect, or report; coverage = the extent of protection, reporting, or service.
+- Crack = break, split, or solve; crash = collide or suddenly stop working.
+- Cradle = a baby's bed or an origin; craft = a skill, handmade object, or small vessel; crate = a storage container.
+- Crave = strongly want; crawl = move slowly or on hands and knees; creep = move quietly or gradually.
+- Create = make; creation = the act or result of making.
+- Credit = borrowed money, payment arrangement, or recognition.
+- Crew = a working group; cricket = a sport or insect.
+- Criminal = a person or activity connected with crime; crimson = a deep red color.
+- Crisis = a serious, critical situation; critical (Page 41) = extremely important or urgent.
+
+# PAGE 41
+
+1\. Crisp — Firm and fresh, but easily broken; pleasantly crunchy; clear and sharp.
+
+- I like eating crisp apples.
+- The photographer took a crisp picture with excellent detail.
+
+2\. Critical — Extremely important or necessary; involving careful judgment or evaluation; expressing disapproval; related to a serious or dangerous condition.
+
+- Reliable internet access is critical for remote work.
+- The manager was critical of the team's performance.
+
+3\. Crook — A bend or curve; an informal word for a dishonest person.
+
+- The road has a sharp crook near the village.
+- The police arrested the crook for stealing money.
+
+4\. Crooked — Bent, curved, or not straight; dishonest or morally wrong.
+
+- The picture is hanging crooked on the wall.
+- The businessman was involved in a crooked deal.
+
+5\. Crop — A plant or agricultural product grown for food or sale; the amount harvested; to cut something short or remove part of it.
+
+- Rice is an important crop in Egypt.
+- I cropped the photograph to remove the background.
+
+6\. Crossing — A place where roads, paths, or railway lines meet or intersect; the act of going across something.
+
+- Always look both ways before using a pedestrian crossing.
+- The crossing took several hours because the river was wide.
+
+7\. Crouch — To bend your knees and lower your body close to the ground.
+
+- The player crouched behind the wall.
+- The cat crouched quietly before jumping.
+
+8\. Crown — A decorative head covering worn by a king or queen as a symbol of authority; the top or highest part of something; to officially make someone a champion or ruler.
+
+- The king wore a golden crown.
+- The team was crowned national champion.
+
+9\. Crude — In a natural, raw, or unprocessed state; rough, simple, or lacking refinement; rude or offensive.
+
+- Crude oil is an important source of energy.
+- His crude jokes made everyone uncomfortable.
+
+10\. Cruise — To travel by ship for pleasure; to sail around an area; to move smoothly at a steady speed.
+
+- They went on a cruise around the Mediterranean.
+- The car was cruising along the highway.
+
+11\. Crumb — A very small piece of bread, cake, or another substance.
+
+- There were crumbs all over the kitchen table.
+- He brushed the crumbs off his shirt.
+
+12\. Crumble — To break into small pieces; to collapse or gradually lose strength.
+
+- The old wall began to crumble.
+- Add butter and flour, then crumble the mixture with your fingers.
+
+13\. Crush — To press something so hard that it breaks or becomes flat; to defeat completely; an intense but often temporary romantic attraction.
+
+- Crush the garlic before adding it to the sauce.
+- Our team crushed its opponents in the final match.
+
+14\. Crust — The hard or outer layer of something, especially bread, the Earth, or a pie.
+
+- I prefer pizza with a thin, crispy crust.
+- Earthquakes occur within or near the Earth's crust.
+
+15\. Crystal — A solid material with an orderly internal structure; a clear, high-quality glass; a transparent mineral.
+
+- The museum displayed a beautiful quartz crystal.
+- She served the drinks in crystal glasses.
+
+16\. Cube — A solid three-dimensional shape with six equal square faces; a small object shaped like a cube.
+
+- A dice is shaped like a cube.
+- Add two ice cubes to the glass.
+
+17\. Cubic — Having the shape or properties of a cube; relating to three-dimensional volume.
+
+- The box has a volume of one cubic meter.
+- The engineer calculated the cubic capacity of the tank.
+
+18\. Cubism — An artistic movement that represents subjects through geometric shapes and fragmented forms.
+
+- Picasso is one of the most famous artists associated with Cubism.
+- The painting uses Cubism to represent the human face from several viewpoints.
+
+19\. Cucumber — A long, green vegetable commonly eaten raw in salads.
+
+- I usually add cucumber to my salad.
+- She sliced a cucumber and served it with lunch.
+
+20\. Cultivate — To prepare and use land for growing crops; to develop a skill, habit, or relationship through effort.
+
+- Farmers cultivate the land to produce wheat.
+- You should cultivate good communication skills.
+
+21\. Cultivation — The process of preparing land and growing crops; the development of a skill, quality, or relationship.
+
+- Rice cultivation requires suitable soil and water.
+- The cultivation of patience takes time and practice.
+
+22\. Culture — The beliefs, customs, arts, and values shared by a society; the growing of plants or microorganisms; to develop or encourage something.
+
+- Learning a language helps you understand another culture.
+- Scientists grew a bacterial culture in the laboratory.
+
+23\. Cunning — Clever and skillful, especially in a secretive or dishonest way; showing the ability to deceive others.
+
+- The fox used a cunning trick to escape.
+- He came up with a cunning plan to win the competition.
+
+24\. Cupboard — A cabinet or enclosed storage space used for keeping food, dishes, clothes, or other objects.
+
+- The cups are in the kitchen cupboard.
+- I need to organize the cupboard before buying more groceries.
+
+## Quick distinctions to remember
+
+- Crisp = firm, crunchy, or sharply clear; crude = raw, rough, or offensive.
+- Critical = essential or judgmental; crisis (Page 40) = a serious situation.
+- Crook = a bend or dishonest person; crooked = bent or dishonest.
+- Crop = an agricultural product or harvest; crumble = break into small pieces.
+- Crouch = lower your body; crawl (Page 40) = move on hands and knees.
+- Crust = outer layer; crumb = tiny broken piece.
+- Crush = press or defeat; crumble = break apart.
+- Cube = a three-dimensional shape; cubic = relating to that shape or volume.
+- Cultivate = develop or grow; cultivation = the process of developing or growing.
+- Culture = shared way of life or a scientific growing process; cultivation = the act of developing or growing something.
+- Cupboard = storage cabinet; crate (Page 40) = transport box.
+
+# PAGE 42
+
+1\. Curb — To control, limit, or restrain something; a raised edge separating a pavement from a road.
+
+- The government introduced measures to curb inflation.
+- He parked his car beside the curb.
+
+2\. Cure — A treatment that makes an illness disappear; to make someone healthy again; to solve or eliminate a problem.
+
+- Scientists are searching for a cure for the disease.
+- This treatment may cure the infection.
+
+3\. Curiosity — A strong desire to know, learn, or discover something.
+
+- Her curiosity led her to study artificial intelligence.
+- Out of curiosity, I opened the old box.
+
+4\. Curious — Eager to learn or know something; strange or unusual.
+
+- Children are naturally curious about the world.
+- I noticed a curious object on the table.
+
+5\. Curl — To form or move into a curved or spiral shape; a ringlet of hair.
+
+- She used a brush to curl her hair.
+- Smoke curled upward from the chimney.
+
+6\. Currency — The money used in a particular country; general acceptance or circulation of an idea or expression.
+
+- The Egyptian pound is the official currency of Egypt.
+- The phrase gained currency among young people.
+
+7\. Current — A flow of water, air, or electricity; the present time; up-to-date or belonging to the present.
+
+- The river current was too strong to swim against.
+- Please check the current price before buying the laptop.
+
+8\. Currently — At the present time; now.
+
+- I am currently learning Turkish.
+- The company is currently hiring software developers.
+
+9\. Curse — To use offensive language; to call upon supernatural power to bring harm; a source of great trouble or misfortune.
+
+- He cursed loudly when he dropped his phone.
+- Some people believed the ancient tomb carried a curse.
+
+10\. Curtail — To reduce, limit, or shorten something.
+
+- The company had to curtail its expenses.
+- The government plans to curtail unnecessary spending.
+
+11\. Curve — A line or shape that bends gradually rather than remaining straight; to bend gradually.
+
+- The road follows a sharp curve around the mountain.
+- The path curves to the left after the bridge.
+
+12\. Cushion — A soft pad or pillow used for comfort or protection; something that reduces the effect of a problem or impact.
+
+- She placed a cushion behind her back.
+- Having some savings provides a financial cushion during difficult times.
+
+13\. Custody — The legal responsibility for caring for someone, especially a child; the act of keeping or guarding someone or something.
+
+- The court awarded custody of the child to his mother.
+- The police took the suspect into custody.
+
+14\. Custom — A traditional practice or behavior followed by a particular society or group; something made especially for a customer.
+
+- It is a local custom to serve tea to guests.
+- He ordered a custom-made computer.
+
+15\. Customary — Usual or traditional; normally done according to accepted practice.
+
+- It is customary to greet guests when they arrive.
+- The employees received their customary annual bonus.
+
+16\. Customer — A person or organization that buys goods or services.
+
+- The shop offers free delivery to regular customers.
+- Good customer service helps businesses build trust.
+
+17\. Customs — The government department responsible for checking goods entering or leaving a country and collecting import duties; taxes charged on imported goods.
+
+- We had to declare our purchases at customs.
+- The government increased customs duties on imported products.
+
+18\. Cycle — A sequence of events that repeats regularly; a complete series or period; to ride a bicycle.
+
+- The water cycle includes evaporation and precipitation.
+- I cycle to work every morning.
+
+## Quick distinctions to remember
+
+- Curb = restrain or limit; curtail = reduce or shorten.
+- Cure = eliminate an illness or problem; crisis (Page 40) = a serious situation.
+- Curiosity = desire to know; curious = eager to know or unusual.
+- Currency = money; current = present or a flow; currently = at present.
+- Curve = a bend or curved line; curl = form into a spiral or ringlet.
+- Custom = tradition or something made to order; customary = traditional or usual; customer = buyer.
+- Custody = legal care or keeping someone under guard; customs = border control and import duties.
+- Cycle = a repeating sequence or period; current = a flow of water, air, or electricity.
+
+# PAGE 43
+
+1\. Dagger — A short, pointed weapon with sharp edges on both sides.
+
+- The historical museum displayed an ancient dagger.
+- The character carried a dagger for protection.
+
+2\. Dainty — Delicate, elegant, and attractive; small and carefully made; sometimes referring to food that is especially pleasant.
+
+- She wore a dainty silver necklace.
+- The restaurant served small, dainty desserts.
+
+3\. Dairy — A place or business where milk is produced, processed, or sold; food products made from milk.
+
+- My uncle works at a dairy farm.
+- Cheese, butter, and yogurt are dairy products.
+
+4\. Dam — A barrier built across a river or stream to control water flow, store water, or produce electricity.
+
+- The dam supplies electricity to nearby towns.
+- Heavy rain caused the water level behind the dam to rise.
+
+5\. Damp — Slightly wet or moist, but not completely soaked; to make something slightly wet or reduce its intensity.
+
+- My clothes were still damp after washing.
+- Use a damp cloth to clean the table.
+
+6\. Dangerous — Likely to cause harm, injury, or damage; involving serious risk.
+
+- Driving too fast is dangerous.
+- It is dangerous to swim in this river during a storm.
+
+7\. Daring — Brave and willing to take risks; bold or adventurous.
+
+- It was a daring decision to start a business with very little money.
+- She performed a daring rescue during the fire.
+
+8\. Dart — To move suddenly and quickly; a small pointed object thrown at a target.
+
+- The mouse darted under the sofa.
+- He threw a dart at the center of the target.
+
+9\. Dash — To move or throw something quickly or forcefully; a sudden quick movement; a small amount of something; to write or sketch quickly.
+
+- She dashed across the street to catch the bus.
+- Add a dash of lemon juice to the salad.
+
+10\. Data — Facts, measurements, observations, or information collected for analysis or reference.
+
+- The company uses customer data to improve its services.
+- We collected data from 500 participants.
+
+11\. Date — To identify or record when something happened or was made; to arrange a romantic meeting; a particular day or time.
+
+- Please date and sign the application.
+- They decided to go on a date on Friday.
+
+12\. Dawn — The time when daylight first appears in the morning; the beginning or early stage of something.
+
+- We left home at dawn to avoid traffic.
+- The invention marked the dawn of a new technological era.
+
+13\. Dazzle — To impress or overwhelm someone with brightness, beauty, or brilliance; to temporarily make someone unable to see clearly.
+
+- The bright headlights dazzled the driver.
+- The young singer dazzled the audience with her performance.
+
+14\. Dazzling — Extremely bright, impressive, or beautiful.
+
+- The city looked dazzling at night.
+- She gave a dazzling performance on stage.
+
+15\. Deadly — Causing or capable of causing death; extremely harmful or dangerous.
+
+- The snake has a deadly bite.
+- A deadly disease spread rapidly through the region.
+
+16\. Deaf — Unable to hear or having serious difficulty hearing; unwilling to listen or pay attention.
+
+- My grandfather became deaf in one ear.
+- The manager remained deaf to the employees' complaints.
+
+17\. Deal — An agreement or arrangement; a quantity or amount; a person's share; to distribute or handle something; to buy and sell.
+
+- We made a deal with the supplier.
+- The company deals with international customers.
+
+18\. Dean — A senior university official responsible for a faculty, school, or department; sometimes a respected senior person in a profession.
+
+- She met the dean of the engineering faculty.
+- The dean approved the new academic program.
+
+19\. Debate — A formal or informal discussion in which people present opposing arguments; to discuss or consider different opinions.
+
+- The students held a debate about artificial intelligence.
+- We debated whether to study abroad or stay in Egypt.
+
+20\. Debt — Money, goods, or services that someone owes; an obligation to repay something.
+
+- He is trying to pay off his credit card debt.
+- The company has a large debt to the bank.
+
+21\. Decade — A period of ten years.
+
+- Technology has changed dramatically over the past decade.
+- She has worked in education for more than a decade.
+
+22\. Decay — To gradually rot, decompose, or deteriorate; the process of becoming weaker or worse.
+
+- Food begins to decay if it is not refrigerated.
+- The building fell into decay after years of neglect.
+
+## Quick distinctions to remember
+
+- Dairy = milk-related products or business; dam = barrier controlling water.
+- Damp = slightly wet; dangerous = likely to cause harm.
+- Daring = brave and willing to take risks; dangerous = involving risk.
+- Dart = move suddenly or a pointed throwing object; dash = move quickly or a small amount.
+- Dazzle = overwhelm with brightness or brilliance; dazzling = extremely impressive or bright.
+- Dawn = beginning of daylight or a new era; decade = ten years.
+- Date = a day, record a date, or romantic meeting; deal = agreement, amount, or business activity.
+- Debate = discussion with different opinions; deal = agreement or arrangement.
+- Debt = something owed; decay = gradual deterioration.
+
+# PAGE 44
+
+1\. Deceit — Dishonest behavior or an attempt to make someone believe something that is not true.
+
+- The investigation revealed years of deceit.
+- He gained their trust through deceit.
+
+2\. Deceive — To make someone believe something false; to mislead or trick someone.
+
+- He tried to deceive his parents about his exam results.
+- Do not let appearances deceive you.
+
+3\. Decent — Good enough or acceptable; polite, honest, and morally respectable; modest or appropriate.
+
+- We found a decent hotel near the station.
+- He is a decent person who always helps others.
+
+4\. Deception — The act or practice of deceiving someone; something that creates a false impression.
+
+- The company was accused of deception.
+- The advertisement was designed to create an impression of quality, but it was a deception.
+
+5\. Decimal — Based on the number ten; a number written using a decimal point.
+
+- The decimal system is based on ten digits.
+- The answer is 3.75, so you should write it as a decimal.
+
+6\. Deck — A flat floor-like surface on a ship or boat; a set of playing cards.
+
+- We enjoyed the sunset while standing on the ship's deck.
+- He shuffled the deck before dealing the cards.
+
+7\. Declaration — An official or public statement; the act of clearly announcing something.
+
+- The government issued a declaration of emergency.
+- You must complete a customs declaration before entering the country.
+
+8\. Declare — To state something clearly and officially; to announce or make something known.
+
+- She declared her intention to study abroad.
+- You must declare any goods that exceed the customs limit.
+
+9\. Decline — To decrease or become weaker, worse, or less successful; to politely refuse an offer or invitation.
+
+- Sales began to decline during the economic crisis.
+- I had to decline the invitation because I was busy.
+
+10\. Decompose — To break down into simpler substances through natural or chemical processes; to rot.
+
+- Organic waste decomposes naturally over time.
+- Scientists studied how bacteria decompose dead plants.
+
+11\. Decorate — To make something more attractive by adding ornaments, colors, or other details.
+
+- We decorated the room for the birthday party.
+- She decorated the cake with fresh strawberries.
+
+12\. Decoration — Something added to make a place or object more attractive; the act of decorating.
+
+- The Christmas decorations made the house look beautiful.
+- The decoration of the wedding hall took several hours.
+
+13\. Decorative — Intended mainly to make something look attractive rather than serve a practical purpose.
+
+- The room has decorative lights on the ceiling.
+- She bought a decorative vase for the living room.
+
+14\. Decrease — To become smaller or lower; to reduce the amount, size, or number of something.
+
+- The number of customers decreased last month.
+- We need to decrease our monthly expenses.
+
+15\. Decree — An official order or decision issued by a person or authority with legal power.
+
+- The government issued a decree banning the activity.
+- The court's decree required the company to pay compensation.
+
+16\. Dedicate — To give time, effort, or attention to a particular purpose; to formally devote something to someone.
+
+- She dedicated her life to helping children.
+- He dedicated his book to his parents.
+
+17\. Deduce — To reach a conclusion by using evidence and logical reasoning.
+
+- From the available data, we can deduce that sales are increasing.
+- The detective deduced who had entered the building.
+
+18\. Deduct — To subtract an amount from a total; to take something away.
+
+- The company will deduct taxes from your salary.
+- You can deduct the cost of business expenses when calculating taxable income, subject to applicable rules.
+
+19\. Deed — An action or something someone does; an important or remarkable act; a legal document proving ownership or transferring property.
+
+- Helping the injured man was a kind deed.
+- The property deed proves that she owns the house.
+
+20\. Deem — To consider, judge, or regard something in a particular way.
+
+- The application was deemed incomplete.
+- The committee deemed the project successful.
+
+21\. Default — Failure to fulfill an obligation, especially a financial or contractual one; a setting or option automatically used when no alternative is chosen.
+
+- The company failed to repay its loan and went into default.
+- The default language on my phone is English.
+
+22\. Defeat — To win against someone in a competition or conflict; to prevent a plan from succeeding; a loss in a contest.
+
+- Our team defeated its strongest opponent.
+- The unexpected delay defeated our plan to finish early.
+
+23\. Defect — A fault or imperfection in something; as a verb, to leave a group, country, or organization and join another.
+
+- The manufacturer discovered a defect in the product.
+- The soldier decided to defect to the opposing side.
+
+24\. Defective — Having a fault, damage, or imperfection; not working correctly.
+
+- The customer returned a defective phone.
+- The machine stopped working because of a defective component.
+
+25\. Defence — The act of protecting someone or something from attack, danger, or criticism; the arguments or evidence used to protect someone in court. (British spelling; American spelling: defense.)
+
+- The country invested in its national defence.
+- The lawyer prepared a strong defence for his client.
+
+26\. Defend — To protect someone or something from attack, harm, or criticism; to argue in support of someone.
+
+- Soldiers defend their country.
+- She defended her decision during the meeting.
+
+27\. Defer — To postpone something until a later time; to accept or follow another person's judgment or authority.
+
+- We decided to defer the meeting until Monday.
+- I will defer to the expert's opinion on this technical issue.
+
+## Quick distinctions to remember
+
+- Deceit = dishonest behavior; deceive = mislead someone; deception = the act or result of misleading.
+- Decent = acceptable or respectable; deceptive = misleading (related to deceive).
+- Decimal = based on ten; decade (Page 43) = ten years.
+- Declaration = an official statement; declare = make the statement.
+- Decline = decrease or refuse; decrease = become or make smaller.
+- Decompose = break down naturally; decay (Page 43) = deteriorate or rot.
+- Decorate = make attractive; decoration = the process or object; decorative = intended to look attractive.
+- Deduce = reach a conclusion through reasoning; deduct = subtract.
+- Deed = an action or legal ownership document; deem = consider or judge.
+- Defeat = overcome an opponent; defect = a fault or leaving one side for another; defective = faulty.
+- Defence = protection or legal argument; defend = protect or support.
+- Defer = postpone or yield to someone's judgment; default = automatic choice or failure to meet an obligation.
+
+# PAGE 45
+
+1\. Defiance — Open resistance or refusal to obey someone or something; the attitude of challenging authority.
+
+- The workers showed defiance by refusing to follow the unfair rules.
+- She looked at her critics with defiance and continued her work.
+
+2\. Deficiency — A lack or shortage of something necessary or desirable, especially a nutrient or important quality.
+
+- Vitamin D deficiency can affect bone health.
+- The report identified a deficiency in the company's security system.
+
+3\. Deficient — Lacking something necessary or important; inadequate or insufficient.
+
+- His diet is deficient in essential vitamins.
+- The project was deficient in several important areas.
+
+4\. Deficit — A shortage or amount by which something is less than required; a financial situation where spending exceeds income.
+
+- The country is trying to reduce its budget deficit.
+- The hospital faces a serious shortage of medical supplies.
+
+5\. Define — To explain the meaning of a word or concept; to describe the essential characteristics or limits of something.
+
+- Can you define the term artificial intelligence?
+- We need to define our goals before starting the project.
+
+6\. Definite — Clear, certain, exact, or clearly established; not vague or doubtful.
+
+- We haven't made a definite decision yet.
+- The meeting will take place at a definite time tomorrow.
+
+7\. Definitely — Certainly; without doubt or uncertainty.
+
+- I will definitely attend the interview.
+- This is definitely the best solution we have found.
+
+8\. Definition — An explanation of the meaning of a word or concept; the clarity or sharpness of an image or outline.
+
+- I looked up the definition of the word in a dictionary.
+- This camera produces images with excellent definition.
+
+9\. Definitive — Final, authoritative, or providing a complete and reliable answer.
+
+- The researchers published a definitive study on the subject.
+- We need a definitive answer before making the decision.
+
+10\. Deflate — To release air or gas from something; to become smaller or less inflated; to reduce someone's confidence or excitement.
+
+- I need to deflate the air mattress before packing it.
+- His confidence was deflated after the unsuccessful interview.
+
+11\. Deflect — To change the direction of something; to avoid answering a question or accepting attention or criticism.
+
+- The shield deflected the incoming object.
+- The politician tried to deflect questions about the scandal.
+
+12\. Deform — To change something's normal shape, usually through pressure, damage, or heat.
+
+- High temperatures can deform plastic objects.
+- The accident caused the metal frame to deform.
+
+13\. Deformation — A change in the shape or dimensions of an object, especially due to pressure, heat, or damage.
+
+- The engineer measured the deformation of the bridge.
+- The accident caused permanent deformation of the vehicle's frame.
+
+14\. Defray — To pay or cover the cost of something, especially an expense.
+
+- The scholarship will help defray the cost of tuition.
+- The company agreed to defray the travel expenses.
+
+15\. Defy — To openly refuse to obey someone or something; to resist or challenge authority, rules, or expectations.
+
+- The students decided to defy the unfair regulations.
+- She defied expectations and became a successful entrepreneur.
+
+16\. Degradation — A reduction in quality, value, or condition; the process of treating someone without respect or dignity.
+
+- Soil degradation is a serious environmental problem.
+- The workers complained about the degradation of their working conditions.
+
+17\. Degrade — To reduce the quality, value, or status of something; to treat someone disrespectfully.
+
+- Pollution can degrade the quality of drinking water.
+- Nobody has the right to degrade other people.
+
+18\. Delay — To make something happen later than planned; a situation in which something is late or postponed.
+
+- Heavy traffic delayed our arrival.
+- The flight was delayed because of bad weather.
+
+19\. Delegate — A person chosen or authorized to represent another person or group; to assign responsibility or work to someone else.
+
+- Each country sent a delegate to the international conference.
+- A good manager knows how to delegate tasks effectively.
+
+20\. Delete — To remove information, text, or files from a document, computer, or other system.
+
+- I accidentally deleted an important file.
+- Please delete the unnecessary paragraph from the report.
+
+21\. Deliberate — To think about or discuss something carefully before making a decision; intentional or planned.
+
+- The committee will deliberate before announcing its decision.
+- It was a deliberate attempt to mislead the public.
+
+22\. Deliberately — Intentionally or on purpose; with careful thought and consideration.
+
+- He deliberately ignored my message.
+- She spoke slowly and deliberately during the presentation.
+
+23\. Delicate — Easily damaged or broken; requiring careful handling; subtle, refined, or sensitive.
+
+- Be careful with this delicate glass vase.
+- The restaurant served a delicate dessert with a subtle flavor.
+
+24\. Delicious — Extremely pleasant to taste; sometimes used informally to describe something highly enjoyable.
+
+- My mother prepared a delicious meal.
+- We had a delicious breakfast at the hotel.
+
+25\. Delinquency — Failure to fulfill responsibilities or duties; behavior involving minor crimes or breaking the law, especially by young people.
+
+- The report discussed the causes of juvenile delinquency.
+- Payment delinquency can damage your credit history.
+
+26\. Delinquent — Failing to fulfill a responsibility or make a required payment; behaving illegally or antisocially, especially as a young person.
+
+- The bank contacted customers with delinquent accounts.
+- The program aims to help delinquent teenagers return to education.
+
+27\. Deliver — To take something to a person or place; to give or present something; to produce a speech or performance; to free someone from a difficult situation.
+
+- The company delivers orders within two business days.
+- She delivered an excellent presentation at the conference.
+
+## Quick distinctions to remember
+
+- Deficiency = a lack or shortage; deficient = lacking something; deficit = an amount that is missing, especially financially.
+- Define = explain or establish meaning; definition = the explanation; definite = clear and certain; definitive = final and authoritative; definitely = certainly.
+- Deflate = release air or reduce confidence; deflect = change direction or avoid attention.
+- Deform = change shape; deformation = the resulting change in shape.
+- Defray = pay or cover expenses; deduct (Page 44) = subtract money.
+- Defiance = resistance; defy = openly resist.
+- Degradation = deterioration or humiliation; degrade = lower quality or treat disrespectfully.
+- Delay = postpone or make late; defer (Page 44) = postpone or yield to another's judgment.
+- Delegate = representative or assign responsibility; deliver = give, transport, or present.
+- Deliberate = careful or intentional; deliberately = on purpose or carefully.
+- Delicate = fragile or subtle; delicious = very pleasant to taste.
+- Delinquency = failure of duty or illegal behavior; delinquent = the person or account involved.
+- Delete = remove information; defeat (Page 44) = overcome an opponent.
+
+# PAGE 46
+
+1\. Delusion — A false or mistaken belief, especially one maintained despite evidence that it is not true.
+
+- He lived under the delusion that he could become rich overnight without working.
+- The belief that everyone is against him was a delusion.
+
+2\. Democracy — A political system in which citizens have the power to choose their representatives through elections and participate in government.
+
+- Democracy allows citizens to vote for their leaders.
+- Freedom of expression is important in a healthy democracy.
+
+3\. Demolish — To completely destroy a building or structure; to defeat or destroy an argument, idea, or plan.
+
+- The authorities decided to demolish the old building.
+- She demolished his argument with strong evidence.
+
+4\. Demolition — The act or process of destroying a building or structure.
+
+- The demolition of the abandoned factory began yesterday.
+- The company specializes in building construction and demolition.
+
+5\. Demonstrate — To show or explain something clearly through examples or actions; to prove that something exists or is true; to take part in a public protest.
+
+- The teacher demonstrated how to solve the problem.
+- The experiment demonstrates the effectiveness of the new method.
+
+6\. Demonstration — An act of showing how something works; evidence or proof of something; a public protest.
+
+- The instructor gave a demonstration of the new software.
+- Thousands of people joined a demonstration against the decision.
+
+7\. Denial — The act of refusing to accept or admit something; a refusal to provide or allow something.
+
+- His denial of the accusations surprised everyone.
+- The company issued a denial of responsibility for the incident.
+
+8\. Denomination — A religious group or branch; the value of a particular banknote or coin.
+
+- Different Christian denominations have different traditions.
+- The cashier gave me a banknote of a smaller denomination.
+
+9\. Denote — To indicate, represent, or directly signify something.
+
+- The symbol X denotes an unknown number.
+- In this diagram, the red line denotes the main road.
+
+10\. Denounce — To publicly condemn, criticize, or accuse someone or something of being wrong.
+
+- The government denounced the violent attack.
+- Several organizations denounced the company's unfair practices.
+
+11\. Dense — Closely packed together; having a large amount of material in a small space; difficult to understand because it contains a lot of information.
+
+- The forest was so dense that we could barely see the path.
+- This textbook contains dense technical information.
+
+12\. Density — The amount of something contained in a particular space or area; the degree to which something is crowded or compact.
+
+- The density of water is approximately one gram per cubic centimeter.
+- The city has a high population density.
+
+13\. Dent — A small hollow or depression in a surface caused by pressure or impact; to damage or reduce something.
+
+- Someone left a dent in my car door.
+- The unexpected expenses made a dent in our savings.
+
+14\. Dentist — A medical professional who examines and treats teeth and gums.
+
+- I have an appointment with the dentist tomorrow.
+- The dentist advised me to brush my teeth twice a day.
+
+15\. Deny — To say that something is not true; to refuse to give or allow something.
+
+- He denied taking the money.
+- The company denied her request for a salary increase.
+
+16\. Depart — To leave a place, especially to begin a journey.
+
+- Our train will depart at 8:30 a.m.
+- She departed from Cairo early in the morning.
+
+17\. Departure — The act of leaving a place; the time when a journey or flight begins; a change from the usual way of doing something.
+
+- The flight's departure was delayed by two hours.
+- His new approach represents a departure from traditional teaching methods.
+
+18\. Dependable — Reliable and trustworthy; someone or something that can be relied upon.
+
+- She is a dependable employee who always finishes her tasks.
+- We need a dependable internet connection for remote work.
+
+19\. Dependence — The state of relying on someone or something; a lack of independence.
+
+- Excessive dependence on technology can reduce problem-solving skills.
+- The child's dependence on his parents gradually decreased.
+
+20\. Dependent — Relying on someone or something for support; influenced or determined by something else.
+
+- The child is financially dependent on his parents.
+- The final price is dependent on the number of items ordered.
+
+21\. Depict — To represent something through a picture, sculpture, film, or written description.
+
+- The painting depicts life in an Egyptian village.
+- The novel depicts the challenges faced by young people.
+
+22\. Deplete — To use up or greatly reduce the amount of something until very little remains.
+
+- The long journey depleted our energy.
+- Overfishing can deplete fish populations.
+
+23\. Deposit — Money paid into a bank account; an initial payment or security given before receiving a service or product; to put something somewhere.
+
+- I deposited my salary into my bank account.
+- The landlord asked for a security deposit before renting the apartment.
+
+24\. Deposition — A formal statement given under oath, usually outside a courtroom; the process of material being laid down or accumulated.
+
+- The witness gave a deposition before the trial.
+- The deposition of sand created a new layer along the riverbank.
+
+25\. Depreciate — To decrease in value over time; to regard or describe someone or something as less valuable or important.
+
+- Cars usually depreciate in value after they are purchased.
+- You should not depreciate your own achievements.
+
+## Quick distinctions to remember
+
+- Delusion = a false belief; deception (Page 44) = misleading someone intentionally.
+- Democracy = a political system; demonstrate = show or prove; demonstration = the act of showing or a public protest.
+- Demolish = destroy; demolition = the process of destroying.
+- Denial = refusal to accept or admit; deny = refuse or say something is untrue; denounce = publicly condemn.
+- Denomination = religious group or monetary value; denote = indicate or represent.
+- Dense = closely packed; density = how much is packed into a given space.
+- Dent = a small depression or reduction; dentist = a professional who treats teeth.
+- Depart = leave; departure = the act or time of leaving.
+- Dependable = reliable; dependence = reliance; dependent = relying on someone or something.
+- Depict = represent visually or in words; demonstrate = show clearly or prove.
+- Deplete = use up a resource; depreciate = lose financial value.
+- Deposit = put money somewhere or pay an initial amount; deposition = sworn testimony or the accumulation of material.
+
+---
