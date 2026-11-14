@@ -6523,3 +6523,1146 @@ Practice challenge: Fill in the blanks without looking back.
 - Deposit = put money somewhere or pay an initial amount; deposition = sworn testimony or the accumulation of material.
 
 ---
+
+
+# PAGE 47
+
+**destruction** — The act of damaging something so badly that it no longer exists or works.
+
+- The earthquake caused the destruction of several buildings.
+- The destruction of the old bridge took three months.
+
+**destructive** — Causing serious damage or harm.
+
+- Smoking can have destructive effects on your health.
+- The storm was highly destructive.
+
+**detach** — To separate something from what it is attached to.
+
+- Please detach the label before washing the shirt.
+- He detached the trailer from the car.
+
+**detain** — To keep someone somewhere, especially by legal authority.
+
+- The police detained the suspect for questioning.
+- Passengers were detained at the airport because of a security alert.
+
+**detect** — To discover or notice something that is not easy to see.
+
+- The test can detect small amounts of the chemical.
+- I detected a strange smell in the kitchen.
+
+**detection** — The act of discovering or identifying something.
+
+- Early detection of the disease can save lives.
+- The system improves the detection of security threats.
+
+**detective** — A person whose job is to investigate crimes.
+
+- The detective questioned several witnesses.
+- She reads detective stories in her free time.
+
+**deteriorate** — To become worse in quality, condition, or health.
+
+- His health began to deteriorate after the accident.
+- The building has deteriorated because of poor maintenance.
+
+**determination** — Strong commitment to achieving something; also, the act of making a decision.
+
+- Her determination helped her finish the difficult project.
+- The final determination will be announced tomorrow.
+
+**determine** — To decide something or discover it through investigation.
+
+- We need to determine the cause of the problem.
+- The manager will determine the final schedule.
+
+**detour** — A different or longer route used because the usual route is blocked.
+
+- Road repairs forced drivers to take a detour.
+- We took a detour to avoid the traffic.
+
+**detriment** — Something that causes harm or disadvantage.
+
+- Working without enough sleep can be to your detriment.
+- The new policy may be a detriment to small businesses.
+
+**detrimental** — Causing harm or damage.
+
+- Too much stress can be detrimental to your health.
+- The decision had a detrimental effect on the company.
+
+**deviate** — To move away from a usual course, standard, or plan.
+
+- Do not deviate from the instructions.
+- The results deviated from our original expectations.
+
+**device** — A tool or piece of equipment designed for a particular purpose.
+
+- This device measures the temperature.
+- He uses a mobile device to access the internet.
+
+**devise** — To invent or plan something carefully.
+
+- The engineers devised a new solution.
+- We need to devise a better strategy.
+
+**devote** — To give time, effort, or attention to something.
+
+- She devotes two hours every day to studying.
+- He devoted his career to scientific research.
+
+**devotion** — Strong love, loyalty, or commitment to someone or something.
+
+- Her devotion to her family is admirable.
+- The project requires dedication and devotion.
+
+**devour** — To eat something quickly and eagerly; to consume something completely.
+
+- The children devoured the pizza.
+- She devoured the book in one evening.
+
+**diagnose** — To identify an illness or problem by examining the evidence.
+
+- The doctor diagnosed him with a serious infection.
+- Technicians are trying to diagnose the computer problem.
+
+**diagnosis** — The identification of an illness or problem.
+
+- The doctor confirmed the diagnosis after several tests.
+- An accurate diagnosis is essential for effective treatment.
+
+**diagram** — A simple drawing that explains how something works or is organized.
+
+- The teacher drew a diagram of the human heart.
+- Follow the diagram to connect the wires correctly.
+
+**dialect** — A form of a language used by a particular region or social group.
+
+- People in this region speak a different dialect.
+- The film includes characters who speak several dialects.
+
+**diameter** — The distance across a circle through its center.
+
+- The diameter of the wheel is fifty centimeters.
+- Measure the diameter of the pipe before buying a replacement.
+
+**dictate** — To say words for someone to write down; also, to give orders.
+
+- The manager dictated a letter to his assistant.
+- One person should not dictate every decision.
+
+**dictator** — A ruler who has complete political power and does not allow opposition.
+
+- The dictator controlled the country for many years.
+- The people protested against the dictator's policies.
+
+## Quick distinctions to remember
+
+- **Detect** = discover something; **diagnose** = identify the cause or nature of a problem.
+- **Determine** = decide or establish; **devise** = invent or plan.
+- **Deteriorate** = become worse; **destructive** = causing damage.
+- **Detriment** = harm or disadvantage; **detrimental** = causing harm.
+- **Detach** = separate something; **detain** = hold someone back.
+
+---
+
+# PAGE 48
+
+**diction** — The choice and pronunciation of words when speaking or writing.
+
+- The actor's clear diction made every word easy to understand.
+- The teacher helped him improve his diction.
+
+**diet** — The food and drink a person usually consumes; a planned way of eating.
+
+- A balanced diet includes vegetables and protein.
+- She changed her diet to improve her health.
+
+**differ** — To be unlike or different from something or someone.
+
+- Our opinions differ on this subject.
+- The two products differ in price and quality.
+
+**digest** — To break down food in the body; also, to understand information.
+
+- The body needs time to digest food.
+- It took me a while to digest all the information.
+
+**digestion** — The process by which the body breaks down food.
+
+- Water helps support normal digestion.
+- Some foods can cause problems with digestion.
+
+**digital** — Using electronic technology to store, process, or communicate information.
+
+- I keep my documents in digital format.
+- Digital cameras have changed photography.
+
+**dignity** — The quality of being worthy of respect.
+
+- Everyone deserves to be treated with dignity.
+- She handled the difficult situation with dignity.
+
+**diligent** — Careful and hardworking in completing tasks.
+
+- He is a diligent student who studies every day.
+- The team made diligent efforts to finish the project.
+
+**dilute** — To make a liquid weaker by adding water or another substance.
+
+- You should dilute the cleaning solution with water.
+- The rain diluted the paint on the wall.
+
+**dim** — Not bright; difficult to see or understand.
+
+- The room was dim because the curtains were closed.
+- We could see a dim light in the distance.
+
+**dime** — A coin worth ten cents in the United States.
+
+- I found a dime under the sofa.
+- The machine accepts quarters, nickels, and dimes.
+
+**dimension** — A measurable size, such as length, width, or height; also, an aspect of a situation.
+
+- The dimensions of the room are five by four meters.
+- We need to consider the financial dimension of the problem.
+
+**dimensional** — Relating to the measurements or dimensions of something.
+
+- The engineer created a three-dimensional model.
+- The software supports two-dimensional drawings.
+
+**diminish** — To become or make something smaller, weaker, or less important.
+
+- The pain gradually diminished.
+- His confidence diminished after repeated failures.
+
+**dine** — To eat a meal, especially dinner, in a formal or special setting.
+
+- We plan to dine at a restaurant tonight.
+- The guests dined together after the ceremony.
+
+**dingy** — Dirty, dark, and unpleasant in appearance.
+
+- They rented a small, dingy apartment.
+- The walls looked dingy after years without cleaning.
+
+**dip** — To put something briefly into a liquid; also, a small decrease.
+
+- She dipped the bread into the soup.
+- Sales experienced a slight dip last month.
+
+**diploma** — An official document showing that someone has completed a course of study.
+
+- He received his diploma after graduating.
+- You may need a diploma to apply for the position.
+
+**diplomacy** — The skill of managing relationships and negotiations, especially between countries.
+
+- Diplomacy helped prevent a conflict.
+- Good diplomacy is useful when resolving disagreements.
+
+**diplomat** — A person who represents their country in relations with other countries.
+
+- The diplomat attended an international meeting.
+- She hopes to become a diplomat one day.
+
+**diplomatic** — Relating to international relations; also, careful and tactful when dealing with people.
+
+- The two countries reached a diplomatic agreement.
+- He gave a diplomatic answer to avoid offending anyone.
+
+**disable** — To make someone or something unable to function or operate.
+
+- The accident disabled the machine.
+- You can disable notifications in the settings.
+
+**disadvantage** — A condition that makes success more difficult.
+
+- Lack of experience can be a disadvantage when applying for jobs.
+- The main disadvantage of this plan is its high cost.
+
+**disappointment** — The feeling of sadness when something does not meet expectations.
+
+- Losing the competition was a great disappointment.
+- She tried to hide her disappointment.
+
+**disapproval** — A feeling or expression that something is wrong or unacceptable.
+
+- His parents showed their disapproval of the decision.
+- She looked at him with clear disapproval.
+
+**disaster** — A sudden event that causes serious damage, suffering, or loss.
+
+- The earthquake was a major disaster.
+- Without proper planning, the event could become a disaster.
+
+## Quick distinctions to remember
+
+- **Diet** = the food someone eats; **dine** = to eat a meal.
+- **Digest** = break down food or understand information; **digestion** = the process.
+- **Diminish** = become smaller or weaker; **dilute** = make a liquid weaker.
+- **Diplomacy** = the skill or practice of negotiation; **diplomat** = the person; **diplomatic** = relating to diplomacy or tact.
+- **Disadvantage** = an unfavorable condition; **disappointment** = sadness caused by unmet expectations.
+
+---
+
+# PAGE 49
+
+**disastrous** — Causing great damage, failure, or suffering.
+
+- The company made a disastrous business decision.
+- The storm had disastrous consequences for the village.
+
+**disc** — A flat, thin, round object; also, a storage medium such as a CD.
+
+- He inserted the disc into the computer.
+- The doctor examined a disc in his spine.
+
+**discard** — To throw something away because it is no longer needed.
+
+- Please discard the empty bottles.
+- The team discarded the original plan.
+
+**discern** — To notice, recognize, or understand something.
+
+- It was difficult to discern the details in the darkness.
+- She could discern a change in his attitude.
+
+**discharge** — To release someone or something; to dismiss from a hospital or job; also, to release liquid or electricity.
+
+- The patient was discharged from the hospital.
+- The battery can discharge quickly in cold weather.
+
+**discipline** — Training that develops self-control; also, a field of study or a system of rules.
+
+- Learning a language requires discipline.
+- Computer science is a broad academic discipline.
+
+**disclose** — To reveal information that was previously secret or unknown.
+
+- The company refused to disclose the details.
+- You must disclose any relevant information.
+
+**discomfort** — A feeling of slight pain, unease, or embarrassment.
+
+- The chair caused some discomfort.
+- He felt discomfort when discussing the issue.
+
+**discount** — A reduction in the usual price.
+
+- Students receive a discount on tickets.
+- The store offered a ten-percent discount.
+
+**discourage** — To make someone less confident or less willing to do something.
+
+- Do not let failure discourage you.
+- The high cost discouraged many customers.
+
+**discourse** — Formal communication or discussion about a particular subject.
+
+- The professor gave a lecture on political discourse.
+- Public discourse can influence social change.
+
+**discreet** — Careful and tactful, especially to avoid attracting attention or revealing private information.
+
+- Please be discreet about this conversation.
+- He made a discreet inquiry about the job.
+
+**discrepancy** — A difference between two things that should match or agree.
+
+- We noticed a discrepancy between the two reports.
+- The accountant investigated the discrepancy in the figures.
+
+**discretion** — Good judgment in making decisions; freedom to decide something.
+
+- Use your discretion when handling the situation.
+- The manager has discretion over the final budget.
+
+**discriminate** — To recognize differences; also, to treat people unfairly because of their group or identity.
+
+- It is important to discriminate between facts and opinions.
+- Employers must not discriminate against applicants.
+
+**disdain** — A strong feeling that someone or something is unworthy of respect.
+
+- She looked at the proposal with disdain.
+- He treated the dishonest behavior with disdain.
+
+**disgrace** — A loss of respect or honor; something that causes shame.
+
+- The scandal brought disgrace to the organization.
+- His behavior was a disgrace to the team.
+
+**disguise** — Something that changes a person's appearance or identity; to hide the truth or identity.
+
+- The actor wore a disguise to avoid being recognized.
+- He tried to disguise his disappointment with a smile.
+
+**disgust** — A strong feeling of dislike or revulsion.
+
+- The smell filled her with disgust.
+- The dirty conditions disgusted the visitors.
+
+**disinclined** — Not willing or interested in doing something.
+
+- I am disinclined to accept the offer.
+- She seemed disinclined to discuss the matter.
+
+**disinfectant** — A substance used to kill many harmful microorganisms on surfaces.
+
+- Use a disinfectant to clean the kitchen counter.
+- The hospital uses disinfectant to maintain clean surfaces.
+
+**dismal** — Very poor, gloomy, or depressing.
+
+- The team had a dismal performance.
+- The weather was cold and dismal.
+
+**dismay** — A feeling of shock, worry, or disappointment.
+
+- To my dismay, the train had already left.
+- The sudden announcement dismayed the employees.
+
+**dismiss** — To send someone away, remove someone from a job, or reject an idea.
+
+- The teacher dismissed the class early.
+- The manager dismissed the employee for repeated misconduct.
+
+**disorder** — A condition in which something is not organized or is not functioning normally.
+
+- The office was in complete disorder.
+- The doctor diagnosed a sleep disorder.
+
+**disparity** — A significant difference or inequality between people or things.
+
+- There is a large disparity between the two salaries.
+- The report highlighted the disparity in educational opportunities.
+
+## Quick distinctions to remember
+
+- **Discreet** = tactful and careful; **discrete** = separate and distinct.
+- **Discern** = recognize or notice; **discriminate** = distinguish between things or treat people unfairly.
+- **Disclose** = reveal information; **disguise** = hide identity or appearance.
+- **Disgust** = strong revulsion; **disdain** = feeling that something is beneath your respect.
+- **Disaster** = a terrible event; **disastrous** = causing terrible consequences.
+
+---
+
+# PAGE 50
+
+**dispatch** — To send someone or something somewhere promptly; also, an official message.
+
+- The company dispatched the order this morning.
+- The journalist sent a dispatch from the capital.
+
+**dispel** — To make a feeling, belief, or doubt disappear.
+
+- The teacher tried to dispel the students' fears.
+- The new evidence dispelled our doubts.
+
+**dispense** — To distribute or give out something, especially medicine.
+
+- The pharmacist dispensed the medication.
+- The machine dispenses hot drinks.
+
+**disperse** — To spread out or move in different directions.
+
+- The crowd began to disperse after the concert.
+- The wind dispersed the smoke.
+
+**displace** — To move something from its usual position; to force people to leave their homes.
+
+- The new technology may displace some traditional jobs.
+- The flood displaced hundreds of families.
+
+**displacement** — The movement of something from its usual position; the forced movement of people from their homes.
+
+- The displacement of the workers caused serious problems.
+- The war resulted in the displacement of thousands of families.
+
+**display** — To show or present something; also, a screen or visual presentation.
+
+- The museum displays ancient objects.
+- The phone has a large, bright display.
+
+**dispose** — To arrange or get rid of something; usually used as "dispose of."
+
+- Please dispose of the waste properly.
+- The manager must dispose of the old equipment.
+
+**disposed** — Having a particular attitude or willingness toward something.
+
+- She is well disposed toward new ideas.
+- I am not disposed to argue about this.
+
+**disposition** — A person's usual character or mood; also, an arrangement or tendency.
+
+- She has a cheerful disposition.
+- His disposition toward teamwork made him a good leader.
+
+**dispute** — A disagreement or argument; to challenge the truth of something.
+
+- The two companies had a dispute over the contract.
+- He disputed the accuracy of the report.
+
+**disregard** — To ignore something or treat it as unimportant.
+
+- You should not disregard safety instructions.
+- He disregarded the warning and continued driving.
+
+**dissimilar** — Not alike; different in appearance or character.
+
+- The two brothers have very dissimilar personalities.
+- These products are dissimilar in design.
+
+**dissipate** — To gradually disappear or spread out; to waste something.
+
+- The morning fog began to dissipate.
+- He dissipated his savings on unnecessary purchases.
+
+**dissolve** — To become mixed into a liquid; to officially end an organization or agreement.
+
+- Sugar dissolves quickly in hot water.
+- The committee voted to dissolve the organization.
+
+**distance** — The amount of space between two places or things.
+
+- The distance between Cairo and Alexandria is considerable.
+- He kept his distance from the argument.
+
+**distant** — Far away in space or time; emotionally not close.
+
+- We could see distant mountains from the hotel.
+- She seemed distant during the conversation.
+
+**distinct** — Clearly different or separate from something else.
+
+- The two languages have distinct grammatical structures.
+- There was a distinct smell of smoke.
+
+**distinction** — A difference between things; also, an honor or special achievement.
+
+- There is an important distinction between these terms.
+- She graduated with distinction.
+
+**distinctly** — Clearly and noticeably.
+
+- I distinctly remember meeting him.
+- The music could be heard distinctly from outside.
+
+**distinguish** — To recognize or understand the difference between things.
+
+- It is difficult to distinguish the twins.
+- You should distinguish between reliable and unreliable sources.
+
+**distinguished** — Respected and admired because of achievements or qualities.
+
+- She is a distinguished scientist.
+- The university invited several distinguished professors.
+
+**distort** — To change something so that it becomes inaccurate or unnatural.
+
+- The photograph was distorted by the old camera.
+- Do not distort the facts to support your argument.
+
+**distortion** — A change that makes something inaccurate or unnatural.
+
+- The report contained a distortion of the original facts.
+- The damaged speaker produced sound distortion.
+
+**distract** — To take someone's attention away from something.
+
+- Please do not distract me while I am studying.
+- The noise distracted the students.
+
+**distraction** — Something that takes attention away from what someone is doing.
+
+- Social media can be a major distraction.
+- He turned off his phone to avoid distractions.
+
+## Quick distinctions to remember
+
+- **Disperse** = spread out; **displace** = move from the usual place.
+- **Disclose** = reveal; **display** = show or present.
+- **Dispute** = disagreement or challenge; **disregard** = ignore.
+- **Distinct** = clearly different; **distant** = far away or emotionally remote.
+- **Distinguish** = recognize differences; **distort** = change something inaccurately.
+- **Dispense** = distribute or give out; **dispose of** = get rid of.
+
+---
+
+# PAGE 51
+
+**distress** — Great pain, worry, or suffering; to cause someone serious worry or suffering.
+
+- The family was in great distress after the accident.
+- The news distressed everyone in the room.
+
+**distribute** — To give or deliver something to several people or places.
+
+- The teacher distributed the exam papers.
+- The company distributes products across the country.
+
+**distribution** — The act of sharing or delivering things; the way something is spread over an area.
+
+- The distribution of food began early in the morning.
+- The map shows the distribution of rainfall across the region.
+
+**district** — An area of a city, country, or region with defined boundaries.
+
+- She works in the business district.
+- The school serves children from several districts.
+
+**disturb** — To interrupt someone or make them feel worried or uncomfortable.
+
+- Please do not disturb me while I am working.
+- The strange noise disturbed the neighbors.
+
+**disturbance** — An interruption, disruption, or situation involving noise or disorder.
+
+- The police arrived to investigate the disturbance.
+- The construction work caused a disturbance in the neighborhood.
+
+**ditch** — A long, narrow channel in the ground; to abandon or get rid of something.
+
+- Rainwater flowed through the ditch.
+- He decided to ditch his old plan.
+
+**dive** — To jump or move headfirst into water; to move quickly downward.
+
+- The swimmer dived into the pool.
+- The bird dived toward the water.
+
+**diver** — A person who swims or works underwater using diving equipment.
+
+- The diver explored the coral reef.
+- A professional diver inspected the underwater pipeline.
+
+**diverge** — To move in different directions or become different.
+
+- The two roads diverge near the village.
+- Their opinions began to diverge during the discussion.
+
+**divergence** — A difference or separation between things that were previously similar or together.
+
+- There is a divergence of opinion among the experts.
+- The divergence between the two results requires investigation.
+
+**diverse** — Including many different types, people, or ideas.
+
+- The city has a diverse population.
+- The course covers a diverse range of topics.
+
+**diversion** — Something that takes attention away from something else; an alternative route.
+
+- The game provided a welcome diversion from work.
+- Drivers were directed along a diversion because of road repairs.
+
+**diversity** — The presence of different types of people, things, or ideas.
+
+- The company values cultural diversity.
+- Biological diversity is important for healthy ecosystems.
+
+**divert** — To turn something away from its original direction or purpose.
+
+- The police diverted traffic around the accident.
+- The charity diverted funds to emergency relief.
+
+**divide** — To separate something into parts or groups; to calculate one number divided by another.
+
+- Divide the cake into eight pieces.
+- You can divide twelve by three to get four.
+
+**divine** — Relating to God or a god; also, to guess or discover something intuitively.
+
+- Many people believe in divine protection.
+- She tried to divine the reason for his sudden silence.
+
+**division** — The act of separating something into parts; a section of an organization; an arithmetic operation.
+
+- The division of responsibilities made the project easier.
+- He works in the sales division.
+
+**divorce** — The legal ending of a marriage; to legally end a marriage.
+
+- They decided to get a divorce.
+- The couple divorced after ten years of marriage.
+
+**dizzy** — Feeling as if everything is spinning or that you might fall.
+
+- I felt dizzy after standing up too quickly.
+- The heat made him feel dizzy.
+
+**dock** — A platform where boats load and unload; also, to reduce pay or points, or to bring a boat into a docking area.
+
+- The ship arrived at the dock.
+- The company may dock his pay for repeated lateness.
+
+**doctrine** — A set of beliefs or principles taught by a group or organization.
+
+- The political party follows a particular doctrine.
+- The students studied the doctrine of the philosopher.
+
+**document** — A written or electronic record containing information; to record something with evidence.
+
+- Please sign this document.
+- The researcher documented every stage of the experiment.
+
+**documentary** — A film or television program that presents factual information about real events or people.
+
+- We watched a documentary about climate change.
+- The documentary explored the history of the city.
+
+**documentation** — Written or electronic records that provide information or evidence.
+
+- You must provide documentation of your qualifications.
+- The software includes detailed technical documentation.
+
+**dodge** — To avoid something by moving quickly; to evade a question or responsibility.
+
+- He dodged the ball just in time.
+- The politician tried to dodge the difficult question.
+
+## Quick distinctions to remember
+
+- **Diverse** = varied; **diversity** = the presence of variety.
+- **Diverge** = move apart or differ; **diversion** = a distraction or alternative route.
+- **Distress** = suffering or severe worry; **disturbance** = an interruption or disruption.
+- **Document** = a record; **documentation** = supporting records; **documentary** = a factual film or program.
+- **Dive** = move into water or downward; **diver** = the person who dives.
+
+---
+
+# PAGE 52
+
+**doll** — A toy made to look like a person, usually a child.
+
+- The little girl played with her favorite doll.
+- He bought a doll as a birthday present.
+
+**domain** — An area of knowledge, activity, or control; also, an internet address category.
+
+- Medicine is a specialized domain of knowledge.
+- The company registered a new internet domain.
+
+**dome** — A rounded roof or structure shaped like half a sphere.
+
+- The building has a large glass dome.
+- We visited a mosque with a beautiful dome.
+
+**domestic** — Relating to the home or family; also, relating to one's own country.
+
+- She prefers domestic travel.
+- Domestic animals are often kept as pets or farm animals.
+
+**dominant** — More powerful, influential, or common than others.
+
+- English is a dominant language in many international workplaces.
+- The dominant company controls most of the market.
+
+**dominate** — To control or have a strong influence over someone or something.
+
+- One company dominates the local market.
+- He tends to dominate every conversation.
+
+**donate** — To give money, goods, or time to help a person or organization.
+
+- Many people donate clothes to charity.
+- She decided to donate blood.
+
+**donation** — Money, goods, or time given to help someone or an organization.
+
+- The hospital received a large donation.
+- Every donation helps support the charity.
+
+**doom** — A terrible fate or destruction; to cause something to fail or end badly.
+
+- The failure of the project seemed like certain doom.
+- Poor planning could doom the business to failure.
+
+**dormitory** — A building or room where students or other people sleep.
+
+- The university provides a dormitory for students.
+- She shares a dormitory room with two classmates.
+
+**dose** — A measured amount of medicine or another substance.
+
+- Take one dose of the medicine after dinner.
+- The doctor reduced the daily dose.
+
+**dot** — A very small round mark or spot.
+
+- There is a red dot on the screen.
+- Connect the dots to complete the picture.
+
+**doubt** — A feeling of uncertainty or lack of confidence.
+
+- I have some doubt about the accuracy of this information.
+- There is no doubt that practice improves your skills.
+
+**doubtful** — Uncertain or unlikely to happen.
+
+- It is doubtful that the meeting will finish early.
+- She was doubtful about the success of the plan.
+
+**doubtless** — Almost certainly; very probably.
+
+- He will doubtless arrive before noon.
+- This is doubtless one of the best solutions available.
+
+**downtown** — The central business or commercial area of a city.
+
+- We went downtown to do some shopping.
+- Her office is located downtown.
+
+**doze** — To sleep lightly for a short period.
+
+- He began to doze during the lecture.
+- I dozed on the sofa after lunch.
+
+**draft** — An early version of a piece of writing; also, a current of air or a process of selecting people for military service.
+
+- I finished the first draft of my report.
+- There is a cold draft coming through the window.
+
+**drag** — To pull something along a surface; to move slowly or unwillingly.
+
+- He dragged the heavy suitcase upstairs.
+- The meeting seemed to drag on forever.
+
+**drain** — To remove liquid from something; to use up energy or resources.
+
+- Drain the water from the pasta.
+- The long journey drained all my energy.
+
+**drainage** — The system or process of removing excess water.
+
+- The road needs better drainage.
+- Poor drainage caused flooding in the garden.
+
+**drama** — A play or performance; also, an exciting or emotional situation.
+
+- We watched a drama at the theater.
+- There was unnecessary drama during the meeting.
+
+**dramatic** — Very noticeable, sudden, or exciting; relating to drama.
+
+- The company experienced a dramatic increase in sales.
+- She gave a dramatic performance.
+
+**dramatize** — To present something as a drama or make it seem more exciting or serious than it is.
+
+- The film dramatizes an important historical event.
+- He tends to dramatize small problems.
+
+**drastic** — Very extreme and having a strong effect.
+
+- The company needs to take drastic measures to reduce costs.
+- There was a drastic change in the weather.
+
+**draw** — To make a picture; to pull something; to attract attention; or to finish a game without a winner.
+
+- She likes to draw portraits.
+- The advertisement helped draw new customers.
+
+## Quick distinctions to remember
+
+- **Domain** = an area of knowledge or control; **dome** = a rounded roof.
+- **Donate** = give something; **donation** = what is given.
+- **Doubtful** = uncertain; **doubtless** = almost certainly.
+- **Draft** = an early version or a current of air; **drastic** = extreme.
+- **Drain** = remove liquid or energy; **drainage** = the system or process of removing water.
+- **Drama** = a play or emotional situation; **dramatic** = striking or theatrical; **dramatize** = present as drama or exaggerate.
+
+---
+
+# PAGE 53
+
+**drawback** — A disadvantage or negative feature of something.
+
+- The main drawback of this phone is its short battery life.
+- Living far from work has several drawbacks.
+
+**drawer** — A sliding box in a desk, cabinet, or other piece of furniture used for storage.
+
+- I keep my documents in the top drawer.
+- She opened the drawer to find a pen.
+
+**drawing** — A picture made with a pencil, pen, or other tool; also, the act of creating such a picture.
+
+- The child made a drawing of her house.
+- His technical drawing shows the machine's design.
+
+**dread** — A strong feeling of fear or worry about something that may happen.
+
+- She felt dread before the difficult examination.
+- Many people dread speaking in public.
+
+**dreadful** — Extremely bad, unpleasant, or frightening.
+
+- We had dreadful weather during the trip.
+- The food tasted dreadful.
+
+**dreary** — Dull, gloomy, and lacking interest or excitement.
+
+- It was a dreary afternoon with constant rain.
+- The office looked dreary and poorly maintained.
+
+**drench** — To make something completely wet.
+
+- The sudden rain drenched everyone waiting outside.
+- He was drenched after walking home in the storm.
+
+**drift** — To move slowly without control, usually because of wind or water; to gradually move away from a subject or direction.
+
+- The boat began to drift toward the shore.
+- Our conversation drifted toward our childhood memories.
+
+**drill** — A tool used to make holes; also, repeated practice or training.
+
+- He used a drill to make a hole in the wall.
+- The students completed a fire drill.
+
+**drip** — To fall or let liquid fall in small drops.
+
+- Water began to drip from the ceiling.
+- Be careful not to drip coffee on the table.
+
+**drought** — A long period with very little or no rain.
+
+- The drought destroyed many crops.
+- Farmers struggled to find water during the drought.
+
+**drown** — To die or be killed by being unable to breathe underwater; also, to overwhelm or cover a sound.
+
+- The lifeguard rescued the swimmer before he could drown.
+- The loud music drowned out our conversation.
+
+**dubious** — Doubtful, uncertain, or not completely trustworthy.
+
+- The offer sounded too good to be true and seemed dubious.
+- The company has a dubious reputation.
+
+**due** — Expected or scheduled to happen; owed or required.
+
+- The assignment is due on Monday.
+- The payment is due at the end of the month.
+
+**dull** — Not sharp, bright, interesting, or exciting; also, a mild and continuous type of pain.
+
+- The knife is too dull to cut the vegetables.
+- The lecture was dull, and several students became bored.
+
+**duly** — In the proper or expected way; at the appropriate time.
+
+- The application was duly signed and submitted.
+- The guests were duly informed of the changes.
+
+**dumb** — Informally, stupid or lacking good judgment; historically used to mean unable to speak, but that usage is outdated and can be offensive.
+
+- It was a dumb mistake that could have been avoided.
+- I felt dumb after forgetting the appointment.
+
+**dump** — To throw something away carelessly; to unload or leave something or someone.
+
+- Please do not dump rubbish in the street.
+- He dumped the old furniture outside the house.
+
+**duplicate** — An exact copy of something; to make an exact copy.
+
+- Please make a duplicate of this key.
+- The system detected a duplicate entry.
+
+**durable** — Strong and able to last a long time without being damaged.
+
+- These shoes are durable enough for daily use.
+- We need durable materials for the construction project.
+
+**duration** — The length of time that something continues.
+
+- The duration of the meeting was two hours.
+- The course has a duration of six months.
+
+**dwarf** — To make something appear very small in comparison; also, a type of small star, plant, or animal.
+
+- The huge building dwarfed the houses around it.
+- Astronomers discovered a distant dwarf star.
+
+**dwell** — To live in a particular place; "dwell on" means to think or talk about something repeatedly.
+
+- Few people dwell in this remote area.
+- Try not to dwell on your past mistakes.
+
+**dweller** — A person or animal that lives in a particular place.
+
+- The city has millions of urban dwellers.
+- The desert dweller has adapted to extreme conditions.
+
+**dwelling** — A place where someone lives, such as a house or apartment.
+
+- The family lives in a small dwelling near the river.
+- The building contains several separate dwellings.
+
+**dye** — A substance used to change the color of something; to color something using such a substance.
+
+- She bought a blue dye for the fabric.
+- He decided to dye his hair brown.
+
+## Quick distinctions to remember
+
+- **Drawback** = disadvantage; **dread** = strong fear or worry.
+- **Dreadful** = extremely bad; **dreary** = dull and gloomy.
+- **Drift** = move slowly without control; **drip** = fall in small drops.
+- **Drill** = a tool or repeated practice; **drain** = remove liquid or energy.
+- **Dubious** = doubtful or suspicious; **doubtless** = almost certainly.
+- **Dull** = boring or not sharp; **duly** = properly or as expected.
+- **Drawer** = a storage compartment; **drawing** = a picture or the act of making one.
+- **Dye** = color something; **drown** = die or be killed by submersion.
+
+---
+
+# PAGE 54
+
+**drawback** — A disadvantage or negative feature of something.
+
+- The main drawback of the apartment is its location.
+- Every solution has at least one drawback.
+
+**drawer** — A sliding storage compartment in a desk, cabinet, or similar piece of furniture.
+
+- The keys are in the kitchen drawer.
+- He put his passport in the top drawer.
+
+**drawing** — A picture made with a pencil, pen, or other tool; the act of producing such a picture.
+
+- The architect showed us a drawing of the new building.
+- Drawing helps children develop their creativity.
+
+**dread** — A strong feeling of fear or worry about something that may happen.
+
+- He felt a sense of dread before the interview.
+- I dread the thought of losing my job.
+
+**dreadful** — Extremely bad, unpleasant, or frightening.
+
+- The hotel service was dreadful.
+- She had a dreadful experience during the storm.
+
+**dreary** — Dull, gloomy, and uninteresting.
+
+- The weather was dreary and cold.
+- He spent a dreary afternoon waiting for the results.
+
+**drench** — To make something completely wet.
+
+- The rain drenched our clothes.
+- The workers were drenched in sweat after the long shift.
+
+**drift** — To move slowly without control, often because of wind or water; to gradually move away from a subject or direction.
+
+- The clouds drifted across the sky.
+- The discussion drifted away from the main topic.
+
+**drill** — A tool used for making holes; also, a repeated exercise or training activity.
+
+- He used an electric drill to repair the shelf.
+- The school organized a fire drill.
+
+**drip** — To fall or let liquid fall in small drops.
+
+- Water dripped from the broken pipe.
+- The wet umbrella continued to drip on the floor.
+
+**drought** — A long period of unusually low rainfall.
+
+- The drought affected farmers across the region.
+- The government introduced measures to deal with the drought.
+
+**drown** — To die or be killed by being unable to breathe underwater; also, to overwhelm or cover a sound.
+
+- The swimmer nearly drowned in the deep water.
+- The traffic noise drowned out the conversation.
+
+**dubious** — Doubtful, questionable, or not completely trustworthy.
+
+- He gave a dubious explanation for his absence.
+- The website makes several dubious claims.
+
+**due** — Expected or scheduled to happen; owed or required.
+
+- The train is due to arrive at six.
+- The rent is due tomorrow.
+
+**dull** — Not sharp, bright, exciting, or interesting; also, a mild continuous pain.
+
+- This knife is dull and needs sharpening.
+- I have a dull pain in my back.
+
+**duly** — Properly or at the expected time.
+
+- The documents were duly delivered.
+- The invitation was duly accepted.
+
+**dumb** — Informally, stupid or lacking good judgment; historically used to mean unable to speak, but that meaning is outdated and can be offensive.
+
+- That was a dumb decision.
+- I felt dumb when I realized I had read the instructions incorrectly.
+
+**dump** — To throw something away carelessly; to unload or abandon something.
+
+- People should not dump rubbish in public places.
+- They dumped the old computer because it no longer worked.
+
+**duplicate** — An exact copy of something; to make an exact copy.
+
+- The office keeps a duplicate of every important document.
+- Please duplicate this file before editing it.
+
+**durable** — Strong and able to last for a long time.
+
+- This material is durable and easy to clean.
+- We need durable equipment for the factory.
+
+**duration** — The length of time that something lasts.
+
+- The duration of the film is two hours.
+- The course has a duration of twelve weeks.
+
+**dwarf** — To make something appear small in comparison; also, a type of small star, plant, or animal.
+
+- The skyscraper dwarfed the surrounding buildings.
+- A white dwarf is a small, dense star.
+
+**dwell** — To live in a place; "dwell on" means to think or speak about something repeatedly.
+
+- Many families dwell in this rural area.
+- Do not dwell on things you cannot change.
+
+**dweller** — A person or animal that lives in a particular place.
+
+- The city dweller enjoys access to many services.
+- Desert dwellers have developed ways to survive in dry environments.
+
+**dwelling** — A place where people live, such as a house or apartment.
+
+- The family built a small dwelling near the farm.
+- The old dwelling was renovated last year.
+
+**dye** — A substance used to change the color of something; to color something with such a substance.
+
+- The fabric needs a darker dye.
+- She decided to dye her hair red.
+
+## Quick distinctions to remember
+
+- **Dread** = fear or worry; **dreadful** = extremely bad; **dreary** = gloomy and dull.
+- **Drill** = a tool or training exercise; **drip** = liquid falling in drops.
+- **Drought** = a long period without enough rain; **drown** = die or be killed underwater.
+- **Dubious** = questionable; **due** = expected or owed; **duly** = properly.
+- **Durable** = long-lasting; **duration** = length of time.
+- **Drawer** = storage compartment; **drawing** = picture.
+- **Dye** = color something; **dwell** = live somewhere or think repeatedly about something.
+
