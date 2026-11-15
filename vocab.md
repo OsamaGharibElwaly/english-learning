@@ -7666,3 +7666,851 @@ Practice challenge: Fill in the blanks without looking back.
 - **Drawer** = storage compartment; **drawing** = picture.
 - **Dye** = color something; **dwell** = live somewhere or think repeatedly about something.
 
+---
+
+# PAGE 55
+
+**eager** — enthusiastic; keen  
+- - She is eager to learn new skills.  
+- - I am eager to start my new project.  
+
+**earnest** — serious; sincere; determined  
+- - He gave an earnest answer to the question.  
+- - She is earnest about achieving her goals.  
+
+**earthquake** — a sudden shaking of the ground  
+- - The earthquake caused damage to several buildings.  
+- - We felt a small earthquake last night.  
+
+**ease** — comfort; freedom from difficulty or worry  
+- - She completed the task with ease.  
+- - The new system makes communication easier.  
+
+**eccentric** — unusual; unconventional  
+- - The artist was known for his eccentric ideas.  
+- - He has an eccentric way of dressing.  
+
+**eccentricity** — unusual behavior or quality  
+- - Her eccentricity made her memorable.  
+- - The scientist was famous for his eccentricities.  
+
+**echo** — a repeated sound  
+- - Her voice produced an echo in the cave.  
+- - His words echoed in my mind.  
+
+**eclipse** — block the light from; surpass  
+- - The moon will eclipse the sun tomorrow.  
+- - Her success eclipsed all previous achievements.  
+
+**ecology** — the study of organisms and their environment  
+- - She studies ecology at university.  
+- - Pollution can seriously affect the local ecology.  
+
+**economic** — related to the economy  
+- - The country is facing economic challenges.  
+- - We need an economic solution to the problem.  
+
+**economical** — saving money or resources  
+- - This car is economical because it uses little fuel.  
+- - We need a more economical way to use electricity.  
+
+**economics** — the study of production, consumption, and money  
+- - He is studying economics at university.  
+- - Economics helps us understand how markets work.  
+
+**economize** — save money or resources  
+- - We need to economize on water.  
+- - The company is trying to economize by reducing costs.  
+
+**economy** — a system of producing and using goods and services  
+- - The economy is growing slowly.  
+- - Tourism plays an important role in Egypt's economy.  
+
+**ecstasy** — intense happiness or joy  
+- - She felt ecstasy after hearing the good news.  
+- - The fans shouted in ecstasy when their team won.  
+
+**edge** — the outer boundary of something  
+- - Be careful near the edge of the cliff.  
+- - He sat at the edge of the bed.  
+
+**edit** — revise or prepare something for publication  
+- - I need to edit my report before sending it.  
+- - She edited the video carefully.  
+
+**edition** — a particular version or printing of a book  
+- - I bought the latest edition of the book.  
+- - This edition includes new information.  
+
+**editorial** — related to an editor or expressing an opinion in a newspaper  
+- - The newspaper published an editorial about education.  
+- - She works on the editorial team.  
+
+**education** — the process of teaching and learning  
+- - Education can create better opportunities.  
+- - He received his education in Cairo.  
+
+**effective** — successful in producing the desired result  
+- - This is an effective way to learn vocabulary.  
+- - The new strategy was very effective.  
+
+**effectiveness** — the ability to produce a successful result  
+- - We measured the effectiveness of the new system.  
+- - Regular practice improves the effectiveness of learning.  
+
+---
+
+# PAGE 56
+
+**efficiency** — the ability to work well without wasting time or resources  
+- - The new software improved our efficiency.  
+- - We are looking for ways to increase efficiency.  
+
+**efficient** — working well with little waste  
+- - She is an efficient worker.  
+- - This machine is more efficient than the old one.  
+
+**effort** — physical or mental work  
+- - Learning a language requires effort.  
+- - His hard work and effort led to success.  
+
+**eject** — force something out  
+- - Press this button to eject the disk.  
+- - The pilot was forced to eject from the aircraft.  
+
+**elaborate** — detailed and carefully planned  
+- - They created an elaborate plan for the project.  
+- - She gave an elaborate explanation.  
+
+**elaboration** — the process of adding more detail  
+- - The idea needs further elaboration.  
+- - His explanation included a detailed elaboration of the plan.  
+
+**elapse** — pass by  
+- - Several years have elapsed since we met.  
+- - A few minutes elapsed before he answered.  
+
+**elastic** — able to return to its original shape  
+- - The material is soft and elastic.  
+- - Elastic bands can stretch and return to their shape.  
+
+**elasticity** — the ability to return to an original shape  
+- - Rubber has a high degree of elasticity.  
+- - The material loses its elasticity over time.  
+
+**elbow** — the joint between the upper and lower arm  
+- - He hurt his elbow while playing football.  
+- - She rested her elbows on the table.  
+
+**election** — the process of choosing leaders by voting  
+- - The election will take place next month.  
+- - Many people voted in the national election.  
+
+**electrical** — related to electricity  
+- - There was an electrical problem in the building.  
+- - He studied electrical engineering.  
+
+**electrician** — a person who installs or repairs electrical systems  
+- - We called an electrician to fix the problem.  
+- - The electrician checked the wiring.  
+
+**electron** — a tiny particle with a negative electrical charge  
+- - An electron carries a negative charge.  
+- - Electrons move through an electrical circuit.  
+
+**electronic** — related to electronic devices or systems  
+- - I received an electronic copy of the document.  
+- - Electronic devices have changed modern life.  
+
+**electronics** — the science and technology of electronic devices  
+- - He is interested in electronics and robotics.  
+- - Modern electronics depend on tiny components.  
+
+**elegance** — beauty and grace  
+- - The building is known for its elegance.  
+- - She spoke with simplicity and elegance.  
+
+**elegant** — graceful, stylish, and attractive  
+- - She wore an elegant dress.  
+- - The solution is simple and elegant.  
+
+**element** — a basic or essential part  
+- - Trust is an important element of friendship.  
+- - Water contains the elements hydrogen and oxygen.  
+
+**elementary** — basic; fundamental  
+- - This book explains elementary mathematics.  
+- - He has an elementary understanding of programming.  
+
+**elevate** — raise to a higher position or level  
+- - Education can elevate people's lives.  
+- - The manager was elevated to a higher position.  
+
+**elevation** — height above a particular level  
+- - The city is located at a high elevation.  
+- - The map shows the elevation of the land.  
+
+**elevator** — a lift that carries people between floors  
+- - We took the elevator to the tenth floor.  
+- - The elevator is out of service today.  
+
+**eliminate** — remove completely  
+- - We need to eliminate unnecessary steps.  
+- - The treatment helped eliminate the problem.  
+
+**elimination** — the act of removing something  
+- - The elimination of errors improved the program.  
+- - Waste elimination can reduce costs.  
+
+---
+
+# PAGE 57
+
+**ellipsis** — the omission of words or a series of dots (...)  
+- - An ellipsis can show that part of a sentence is missing.  
+- - She used an ellipsis to create a pause in the text.  
+
+**elliptical** — shaped like an oval  
+- - The table has an elliptical shape.  
+- - The planet follows an elliptical path around the sun.  
+
+**eloquence** — powerful and persuasive expression  
+- - The speaker impressed everyone with his eloquence.  
+- - Her eloquence made the speech memorable.  
+
+**eloquent** — expressing ideas clearly and powerfully  
+- - She gave an eloquent speech.  
+- - His silence was more eloquent than his words.  
+
+**elusive** — difficult to find, understand, or achieve  
+- - Success remained elusive for many years.  
+- - The answer to the problem was elusive.  
+
+**emancipate** — free someone from control or oppression  
+- - Education can help emancipate people from poverty.  
+- - The movement aimed to emancipate enslaved people.  
+
+**emancipation** — the act of being freed from control or oppression  
+- - The law represented an important step toward emancipation.  
+- - Education can contribute to personal emancipation.  
+
+**embargo** — an official ban on trade or activity  
+- - The country imposed an embargo on certain goods.  
+- - The embargo affected international trade.  
+
+**embark** — begin a journey or new activity  
+- - We embarked on a journey across the country.  
+- - She is about to embark on a new career.  
+
+**embarrass** — make someone feel ashamed or uncomfortable  
+- - I did not want to embarrass him in public.  
+- - His question embarrassed her.  
+
+**embassy** — the official office of a country's representatives in another country  
+- - He visited the Egyptian embassy for assistance.  
+- - The embassy provides services to citizens abroad.  
+
+**embody** — represent or express an idea or quality  
+- - She embodies the values of hard work and honesty.  
+- - This project embodies our long-term vision.  
+
+**embrace** — hug; accept willingly  
+- - They embraced after many years apart.  
+- - We should embrace new opportunities.  
+
+**embroider** — decorate cloth with patterns using thread  
+- - She learned to embroider traditional designs.  
+- - The workers embroidered flowers on the fabric.  
+
+**embroidery** — decorative needlework  
+- - The dress has beautiful embroidery.  
+- - She enjoys embroidery in her free time.  
+
+**emerge** — appear or become known  
+- - New problems began to emerge.  
+- - The company emerged as a market leader.  
+
+**emergency** — a serious and unexpected situation requiring immediate action  
+- - Call for help in an emergency.  
+- - The hospital has an emergency department.  
+
+**emigrant** — a person who leaves their country to live elsewhere  
+- - The emigrant moved abroad to find better opportunities.  
+- - Many emigrants stayed connected with their families.  
+
+**emigrate** — leave one's country to live in another  
+- - They decided to emigrate to another country.  
+- - Many people emigrate in search of better opportunities.  
+
+**eminent** — famous, respected, or important  
+- - He is an eminent scientist.  
+- - The university invited several eminent speakers.  
+
+**emission** — the release of gas, light, or other substances  
+- - The factory reduced its carbon emissions.  
+- - Vehicle emissions contribute to air pollution.  
+
+**emit** — send out or give off  
+- - The sun emits light and heat.  
+- - The machine emits a loud sound.  
+
+**emotion** — a strong feeling  
+- - Fear is a powerful emotion.  
+- - Her voice showed strong emotion.  
+
+**emotional** — relating to strong feelings  
+- - It was an emotional experience.  
+- - He became emotional during the speech.  
+
+**emphasis** — special importance given to something  
+- - The course places emphasis on practical skills.  
+- - She spoke with emphasis about the importance of education.  
+
+**emphasize** — give special importance to something  
+- - The teacher emphasized the importance of practice.  
+- - I want to emphasize one important point.  
+
+---
+
+# PAGE 58
+
+**empirical** — based on observation or experiment  
+- - The theory needs empirical evidence.  
+- - Scientists rely on empirical data.  
+
+**employ** — give someone a job; use  
+- - The company employs over one hundred workers.  
+- - We employ several methods to solve the problem.  
+
+**employee** — a person who works for an employer  
+- - Every employee received training.  
+- - She is a valuable employee.  
+
+**employer** — a person or organization that gives people jobs  
+- - The employer offered him a new contract.  
+- - A good employer supports employee development.  
+
+**employment** — the state of having paid work  
+- - He is looking for full-time employment.  
+- - The company created new employment opportunities.  
+
+**empty** — containing nothing  
+- - The room was completely empty.  
+- - Please empty the container before recycling it.  
+
+**enable** — make something possible  
+- - Technology enables us to communicate quickly.  
+- - The scholarship enabled her to continue her studies.  
+
+**enchant** — delight greatly or affect with charm  
+- - The beautiful music enchanted the audience.  
+- - The children were enchanted by the story.  
+
+**encircle** — surround in a circle  
+- - High mountains encircle the village.  
+- - The police encircled the building.  
+
+**enclose** — surround or include  
+- - A wall encloses the garden.  
+- - Please enclose a copy of your certificate.  
+
+**enclosure** — an enclosed area  
+- - The animals live in a large enclosure.  
+- - Please find the document in the enclosure.  
+
+**encounter** — meet or experience unexpectedly  
+- - We encountered several problems during the trip.  
+- - She encountered an old friend at the airport.  
+
+**encourage** — give support or confidence  
+- - My family encourages me to continue learning.  
+- - Teachers should encourage students to ask questions.  
+
+**endanger** — put at risk  
+- - Pollution can endanger wildlife.  
+- - Careless driving endangers other people.  
+
+**endeavor** — attempt; serious effort  
+- - Learning a new language is a challenging endeavor.  
+- - We will endeavor to complete the project on time.  
+
+**endless** — having no end  
+- - The road seemed endless.  
+- - They had endless opportunities to learn.  
+
+**endorse** — publicly support or approve  
+- - Several experts endorsed the proposal.  
+- - Please endorse the check before depositing it.  
+
+**endorsement** — official approval or support  
+- - The product received an endorsement from an expert.  
+- - His endorsement increased public confidence.  
+
+**endow** — give a quality, ability, or resource  
+- - Nature endowed her with great talent.  
+- - The university was endowed with a large fund.  
+
+**endurance** — the ability to continue despite difficulty  
+- - Running long distances requires endurance.  
+- - Her endurance helped her overcome many challenges.  
+
+**endure** — continue despite difficulty or pain  
+- - We must endure difficult times.  
+- - The bridge was built to endure extreme weather.  
+
+**energetic** — full of energy  
+- - He is an energetic and enthusiastic teacher.  
+- - The children remained energetic all day.  
+
+**energy** — power or strength for activity  
+- - Exercise can increase your energy.  
+- - Solar energy is a renewable resource.  
+
+**enforce** — make sure a rule or law is obeyed  
+- - The government must enforce the law.  
+- - Schools enforce rules to maintain discipline.  
+
+**engage** — involve; hire; participate  
+- - The company engaged a consultant for the project.  
+- - The lesson engaged the students.  
+
+**engagement** — involvement or a formal agreement  
+- - Student engagement is important for learning.  
+- - Their engagement was announced last week.  
+
+---
+
+# PAGE 59
+
+**engrave** — cut words or designs into a surface  
+- - They engraved his name on the medal.  
+- - The artist engraved a pattern into the metal.  
+
+**engraving** — an image or design cut into a surface  
+- - The museum displayed an old engraving.  
+- - Engraving requires great skill and patience.  
+
+**engulf** — completely surround or cover  
+- - The fire quickly engulfed the building.  
+- - The waves engulfed the small boat.  
+
+**enhance** — improve or increase the quality of something  
+- - This course will enhance your skills.  
+- - Good lighting can enhance the appearance of a room.  
+
+**enhancement** — an improvement or increase  
+- - The update includes several performance enhancements.  
+- - The project focuses on skill enhancement.  
+
+**enlighten** — give someone knowledge or understanding  
+- - The lecture enlightened us about the topic.  
+- - Please enlighten me about your decision.  
+
+**enormous** — extremely large  
+- - The project requires an enormous amount of work.  
+- - They faced enormous challenges.  
+
+**enquire** — ask for information  
+- - I called to enquire about the course.  
+- - Please enquire at the reception desk.  
+
+**enquiry** — a request for information  
+- - We received an enquiry from a potential customer.  
+- - Please send your enquiry by email.  
+
+**enrich** — improve the quality or value of something  
+- - Travel can enrich your life.  
+- - The discussion enriched our understanding of the topic.  
+
+**enroll** — officially register for something  
+- - I plan to enroll in a master's program.  
+- - More students enrolled in the course this year.  
+
+**enrolment** — the act or number of people registering  
+- - University enrolment increased this year.  
+- - The enrolment process begins in June.  
+
+**ensure** — make certain  
+- - Please ensure that the door is locked.  
+- - Testing helps ensure the quality of the software.  
+
+**entail** — involve or require  
+- - The job entails working with different teams.  
+- - Moving abroad may entail many challenges.  
+
+**enterprise** — a business or organization  
+- - He started a small business enterprise.  
+- - The company is a successful enterprise.  
+
+**entertain** — amuse or provide enjoyment  
+- - The magician entertained the children.  
+- - The hotel entertained its guests with live music.  
+
+**entertainment** — activities that provide enjoyment  
+- - The city offers many forms of entertainment.  
+- - Movies are a popular form of entertainment.  
+
+**enthusiasm** — strong interest and excitement  
+- - She showed great enthusiasm for learning.  
+- - His enthusiasm motivated the entire team.  
+
+**enthusiastic** — showing great interest or excitement  
+- - The students were enthusiastic about the project.  
+- - She is enthusiastic about learning new languages.  
+
+**entitle** — give someone the right to something  
+- - This ticket entitles you to free entry.  
+- - The certificate entitles him to apply for the program.  
+
+**entrance** — a way into a place  
+- - Meet me at the main entrance.  
+- - The entrance to the museum is on the other side.  
+
+**entreat** — ask someone earnestly  
+- - She entreated him to stay.  
+- - They entreated the leader to reconsider his decision.  
+
+**entrust** — give someone responsibility for something  
+- - She entrusted me with an important task.  
+- - The manager entrusted the project to his team.  
+
+**entry** — an act of entering or an item in a record  
+- - Entry to the building requires a card.  
+- - I made a new entry in my journal.  
+
+**enumerate** — list things one by one  
+- - Please enumerate the main advantages.  
+- - The report enumerates several possible solutions.  
+
+**envelop** — completely cover or surround  
+- - Darkness enveloped the city.  
+- - Smoke enveloped the building.  
+
+**environment** — the surroundings and conditions in which someone or something exists  
+- - We should protect the environment.  
+- - A positive work environment improves productivity.  
+
+---
+
+# PAGE 60
+
+**envy** — a feeling of wanting what someone else has  
+- - He felt envy when he saw her success.  
+- - Envy can damage relationships.  
+
+**epidemic** — a widespread outbreak of disease  
+- - The epidemic spread rapidly through the region.  
+- - Health officials worked to control the epidemic.  
+
+**episode** — one part of a series or story  
+- - I watched the latest episode last night.  
+- - Each episode tells part of the larger story.  
+
+**epoch** — an important period of time  
+- - The invention marked a new epoch in technology.  
+- - We are living in an important epoch of scientific development.  
+
+**equal** — the same in amount, value, or status  
+- - All people should have equal opportunities.  
+- - Divide the money into equal parts.  
+
+**equality** — the state of being equal  
+- - The organization promotes equality in education.  
+- - Everyone deserves dignity and equality.  
+
+**equation** — a mathematical statement showing two things are equal  
+- - Solve the equation carefully.  
+- - The teacher explained the equation step by step.  
+
+**equator** — an imaginary line around the middle of the Earth  
+- - Countries near the equator usually have warm climates.  
+- - The equator divides the Earth into two hemispheres.  
+
+**equilibrium** — a state of balance  
+- - She tried to maintain a balance between work and life.  
+- - The system reached an equilibrium.  
+
+**equip** — provide with necessary tools or skills  
+- - The course equips students with practical skills.  
+- - We need to equip the laboratory with new computers.  
+
+**equipment** — tools or machines needed for a task  
+- - The laboratory has modern equipment.  
+- - Safety equipment is required on the site.  
+
+**equivalent** — equal in value, meaning, or importance  
+- - One kilometer is equivalent to one thousand meters.  
+- - The two qualifications are roughly equivalent.  
+
+**eradicate** — completely destroy or remove  
+- - The campaign aims to eradicate the disease.  
+- - Education can help eradicate illiteracy.  
+
+**erase** — remove writing or information  
+- - Please erase the old information.  
+- - He erased the mistake from the board.  
+
+**erect** — build or put something upright  
+- - Workers erected a new building.  
+- - They erected a monument in the park.  
+
+**erosion** — the gradual wearing away of material  
+- - Heavy rain caused soil erosion.  
+- - Coastal erosion threatens many buildings.  
+
+**errand** — a short trip to complete a task  
+- - I need to run an errand before work.  
+- - She went to the store on an errand.  
+
+**erupt** — suddenly burst out  
+- - The volcano may erupt again.  
+- - Violence erupted after the event.  
+
+**eruption** — a sudden violent outburst  
+- - The volcanic eruption covered the area with ash.  
+- - The eruption forced many people to leave their homes.  
+
+**escalator** — a moving staircase  
+- - We took the escalator to the next floor.  
+- - The escalator stopped suddenly.  
+
+**escape** — get away from danger or confinement  
+- - The prisoners attempted to escape.  
+- - He escaped from the burning building.  
+
+**escort** — accompany someone for protection or guidance  
+- - A guard escorted the visitors inside.  
+- - She was escorted to the airport.  
+
+**essay** — a short piece of writing about a subject  
+- - I need to write an essay about technology.  
+- - Her essay received a high grade.  
+
+**essence** — the most important quality of something  
+- - The essence of the problem is easy to understand.  
+- - Trust is the essence of a strong relationship.  
+
+**essential** — completely necessary  
+- - Water is essential for life.  
+- - Communication is an essential skill.  
+
+---
+
+# PAGE 61
+
+**establish** — set up or create  
+- - They established a new company.  
+- - The research established a connection between the two factors.  
+
+**establishment** — an organization or the act of creating something  
+- - The establishment of the university took many years.  
+- - The restaurant is a popular local establishment.  
+
+**estate** — property or all the assets owned by someone  
+- - He inherited a large estate.  
+- - The family owns an estate outside the city.  
+
+**esteem** — respect and admire  
+- - She is held in high esteem by her colleagues.  
+- - I esteem him for his honesty.  
+
+**estimate** — roughly calculate or judge the value of something  
+- - We estimate that the project will take six months.  
+- - The engineer estimated the cost of the project.  
+
+**eternal** — lasting forever  
+- - The story explores the idea of eternal life.  
+- - Some questions seem eternal.  
+
+**evaluate** — examine and judge carefully  
+- - We need to evaluate the results.  
+- - The teacher evaluated the students' work.  
+
+**evaporate** — change from liquid into vapor  
+- - Water evaporates when it is heated.  
+- - The rainwater quickly evaporated in the sun.  
+
+**evaporation** — the process of changing from liquid into vapor  
+- - Heat increases the rate of evaporation.  
+- - Evaporation is part of the water cycle.  
+
+**eventful** — full of important or interesting events  
+- - It was an eventful year.  
+- - We had an eventful journey.  
+
+**eventually** — finally; after some time  
+- - He eventually found a solution.  
+- - The project eventually became successful.  
+
+**everlasting** — lasting forever or for a very long time  
+- - They hoped for everlasting peace.  
+- - The monument is a symbol of everlasting memory.  
+
+**evidence** — facts or information showing that something is true  
+- - The police found evidence at the scene.  
+- - There is strong evidence supporting the theory.  
+
+**evident** — clear and easy to see or understand  
+- - It was evident that she was tired.  
+- - The benefits of the new system are evident.  
+
+**evolution** — gradual development or change  
+- - Technology has undergone rapid evolution.  
+- - The theory explains the evolution of species.  
+
+**evolve** — develop gradually  
+- - Languages evolve over time.  
+- - The project evolved into something much larger.  
+
+**exact** — completely correct and precise  
+- - Please give me the exact address.  
+- - The measurements must be exact.  
+
+**exaggerate** — make something seem larger or more important than it is  
+- - Do not exaggerate the problem.  
+- - He tends to exaggerate his achievements.  
+
+**exaggeration** — a statement that makes something seem bigger than it is  
+- - His story contained some exaggeration.  
+- - The claim was clearly an exaggeration.  
+
+**exalt** — raise in rank or praise highly  
+- - The speech exalted the achievements of the team.  
+- - Some people exalt wealth above everything else.  
+
+**exalted** — of very high rank or importance  
+- - She held an exalted position in society.  
+- - He was praised for his exalted character.  
+
+**exasperate** — make someone very annoyed  
+- - The repeated delays began to exasperate us.  
+- - His behavior exasperated his colleagues.  
+
+**exceed** — go beyond a limit or amount  
+- - The cost may exceed our budget.  
+- - Do not exceed the speed limit.  
+
+**exceedingly** — extremely; very  
+- - The task was exceedingly difficult.  
+- - She was exceedingly happy with the result.  
+
+**excel** — be extremely good at something  
+- - She excels at mathematics.  
+- - Hard work can help you excel in your career.  
+
+**excellent** — extremely good  
+- - You did an excellent job.  
+- - The restaurant provides excellent service.  
+
+---
+
+# PAGE 62
+
+**exception** — something that does not follow a general rule  
+- - Everyone was invited with one exception.  
+- - This case is an exception to the rule.  
+
+**exceptional** — unusually excellent or different  
+- - She showed exceptional talent.  
+- - The team achieved exceptional results.  
+
+**excess** — more than is necessary  
+- - Excess sugar can be harmful.  
+- - The company reduced excess spending.  
+
+**excessive** — too much  
+- - Excessive noise can cause stress.  
+- - Avoid excessive use of your phone.  
+
+**exchange** — give something and receive something else  
+- - We exchanged ideas during the meeting.  
+- - You can exchange the product within seven days.  
+
+**excite** — make someone feel enthusiastic or interested  
+- - The new opportunity excited him.  
+- - Scientific discoveries excite my curiosity.  
+
+**excitement** — a feeling of great enthusiasm  
+- - There was great excitement before the event.  
+- - She could not hide her excitement.  
+
+**exciting** — causing excitement  
+- - Starting a new career can be exciting.  
+- - It was an exciting experience.  
+
+**exclaim** — say something suddenly and loudly  
+- - She exclaimed with surprise.  
+- - "What a beautiful view!" he exclaimed.  
+
+**exclude** — prevent from being included  
+- - The list excludes temporary workers.  
+- - Do not exclude anyone from the discussion.  
+
+**exclusion** — the act of leaving someone or something out  
+- - The exclusion of important data affected the results.  
+- - Social exclusion can have serious consequences.  
+
+**exclusive** — limited to a particular person or group  
+- - The club offers exclusive benefits to members.  
+- - This is an exclusive interview.  
+
+**exclusively** — only; completely  
+- - The product is sold exclusively online.  
+- - She works exclusively on research projects.  
+
+**excursion** — a short journey, usually for pleasure  
+- - We went on an excursion to the countryside.  
+- - The students enjoyed the weekend excursion.  
+
+**excuse** — forgive or provide a reason for something  
+- - Please excuse my late reply.  
+- - There is no excuse for careless behavior.  
+
+**execute** — carry out or perform  
+- - The team executed the plan successfully.  
+- - The computer executes instructions quickly.  
+
+**execution** — the act of carrying out a plan or task  
+- - The successful execution of the project required teamwork.  
+- - Careful planning improves execution.  
+
+**executive** — a person responsible for managing an organization  
+- - She works as a senior executive.  
+- - The executive made an important decision.  
+
+**exemplify** — be a typical example of something  
+- - Her work exemplifies creativity and dedication.  
+- - This project exemplifies good teamwork.  
+
+**exempt** — not required to do something  
+- - Some students are exempt from the fee.  
+- - He is exempt from certain requirements.  
+
+**exert** — use effort, power, or influence  
+- - The machine exerts pressure on the material.  
+- - She exerted a strong influence on the team.  
+
+**exertion** — physical or mental effort  
+- - The climb required considerable exertion.  
+- - After hours of exertion, he needed to rest.  
+
+**exhaust** — use up completely  
+- - The project exhausted our budget.  
+- - The engine releases exhaust into the air.  
+
+**exhausted** — extremely tired or completely used up  
+- - I was exhausted after the long journey.  
+- - The available resources were exhausted.  
+
+**exhaustion** — extreme tiredness or complete depletion  
+- - He stopped working because of exhaustion.  
+- - Resource exhaustion can cause serious problems.  
+
+**exhaustive** — complete and thorough  
+- - The researchers conducted an exhaustive study.  
+- - We need an exhaustive analysis of the data.  
+
+**exhibit** — show or display  
+- - The museum exhibits ancient artifacts.  
+- - The results exhibit a clear pattern.
+
