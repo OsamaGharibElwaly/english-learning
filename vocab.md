@@ -9306,3 +9306,725 @@ The founder explained the company's original vision.
 Children played near the fountain.
 Fresh water flowed from a natural fountain in the hills.
 ---
+### PAGE 71
+
+**fraction** - segment; fragment; a small proportion of
+- Only a tiny fraction of the applicants were accepted into the prestigious program.
+- She spent a fraction of her savings on the vintage bicycle.
+
+**fracture** - break into pieces; crack; destroy; violate or abuse
+- The athlete suffered a hairline fracture in his left ankle during the final match.
+- Constant disagreements threatened to fracture the long-standing partnership.
+
+**fragile** - easy to destroy, delicate, not strong
+- Please handle the antique porcelain vase carefully because it is extremely fragile.
+- After months of conflict, the peace agreement between the two nations remains fragile.
+
+**fragment** - small part broken off or detached; fraction
+- Archaeologists discovered a painted pottery fragment buried beneath the temple floor.
+- I could only remember a brief fragment of the dream after waking up.
+
+**fragrance** - scent; aroma; distinctive odor that is pleasant
+- The sweet fragrance of blooming jasmine filled the evening air.
+- She chose a floral fragrance for her daily perfume.
+
+**fragrant** - pleasant-smelling; odorous
+- Freshly baked bread made the entire kitchen warm and fragrant.
+- They walked through a fragrant garden lined with lavender and roses.
+
+**frail** - physically weak; easily broken
+- Although he looked frail after his illness, his mind remained sharp.
+- The old wooden bridge was too frail to support the weight of heavy trucks.
+
+**frame** - structure that gives shape or support; closed, often rectangular border of drawn or printed lines
+- He placed the family portrait inside a handcrafted silver frame.
+- Workers assembled the steel frame of the skyscraper before adding the glass panels.
+
+**framework** - fundamental structure, as for a written work; skeleton
+- The new legislation provides a legal framework for protecting digital privacy.
+- She outlined the basic framework of her novel before writing the first chapter.
+
+**franchise** - right granted by authority; right to vote; business licensed to sell a product in particular area
+- He saved enough money to open a local franchise of the popular coffee chain.
+- Citizens fought for decades to secure the universal franchise for all adults.
+
+**frank** - honest; sincere; open and sincere in expression; straightforward
+- I appreciate your frank feedback on my presentation, even though it was hard to hear.
+- They had a frank discussion about the company's financial struggles.
+
+**freight** - transport commercially as cargo; load with goods; goods carried by a large vehicle
+- A long freight train carried coal and timber across the mountains.
+- The shipping company charges by weight to transport heavy freight overseas.
+
+**fret** - cause to be uneasy; wear away
+- Do not fret over minor details that are completely out of your control.
+- She tends to fret about her upcoming exams weeks in advance.
+
+**friction** - clash in opinion; rubbing against; conflict
+- Applying oil to the hinges reduces friction and stops the door from squeaking.
+- Differences in management style created noticeable friction between the two co-founders.
+
+**frightening** - inspiring with fear; causing fear; of capable of causing fear; scary
+- Getting caught in a sudden thunderstorm on the open lake was a frightening experience.
+- The horror movie relied on sudden loud noises rather than a genuinely frightening plot.
+
+**fringe** - margin; periphery; decorative border of hanging threads, cords, or strips, often attached to a separate band
+- She wore a suede jacket decorated with long leather fringe along the sleeves.
+- Several small cottages sat on the quiet fringe of the dense forest.
+
+**frontier** - part of a country which fronts or faces another country or an unsettled region; border, confine, or extreme part of a country
+- Pioneers traveled west to settle the vast, untamed frontier.
+- Deep-space exploration represents the next great frontier for modern science.
+
+**frost** - ice crystal; weather cold enough to cause freezing; provide with a rough surface or appearance
+- A thin layer of white frost covered the grass early in the morning.
+- The sudden autumn frost damaged most of the late-blooming tomatoes.
+
+**frown** - look angry; wrinkle one's forehead; regard something with disapproval or distaste
+- The teacher gave a slight frown when the students continued talking during the lecture.
+- Many traditional critics frown upon mixing formal and casual attire.
+
+**frugal** - sparing; economical; costing little; inexpensive
+- By cooking at home and avoiding impulse buys, he maintained a very frugal lifestyle.
+- She prepared a delicious yet frugal meal using simple pantry staples.
+
+**fruitful** - productive; fertile; producing results; profitable
+- Our afternoon brainstorming session proved highly fruitful, yielding three solid campaign ideas.
+- Years of patient research finally led to a fruitful medical breakthrough.
+
+**frustrate** - make null; bring to nothing; prevent from taking effect or attaining fulfillment
+- Heavy fog and flight delays threatened to frustrate our vacation plans.
+- Constant interruptions during work hours really frustrate the design team.
+
+**frustration** - disappointment; failure; act of frustrating
+- He sighed in frustration after realizing he had locked his keys inside the car.
+- Software glitches are a common source of daily frustration for office workers.
+
+**fuel** - substance that can be consumed to produce energy
+- The hikers gathered dry branches to use as fuel for their campfire.
+- Rising fuel prices have increased the cost of cross-country shipping.
+
+**fulfil** - fill full; fill to the utmost capacity, as a vessel, a room
+- She worked tirelessly to fulfil her lifelong dream of becoming a surgeon.
+- The vendor failed to fulfil the terms of the contract on time.
+
+**full** - filled to satisfaction with food or drink; containing as much or as many as is possible or normal
+- I could not eat another bite because I am completely full from dinner.
+- The parking lot was already full an hour before the concert started.
+
+---
+
+### PAGE 72
+
+**fumble** - feel or grope about; make awkward attempts to do or find something; play childishly; turn over and over
+- I watched him fumble in the dark for his keys after the porch light burned out.
+- The nervous speaker began to fumble over his words during the opening remarks.
+
+**function** - act of executing or performing any duty; assigned duty or activity
+- The primary function of the heart is to pump blood throughout the body.
+- Every button on the control panel serves a specific safety function.
+
+**functional** - useful; in good working order
+- The kitchen is small, but its layout is clean and completely functional.
+- After replacing the battery, the old wristwatch was fully functional again.
+
+**fund** - money; capital; a reserve of money set aside for some purpose; finance; subsidize
+- They set up an emergency fund to cover unexpected medical expenses.
+- Private donors agreed to fund the construction of the new community library.
+
+**fundamental** - relating to foundation or base; elementary; primary; essential
+- Learning basic grammar is a fundamental step in mastering a new language.
+- Freedom of speech is considered a fundamental human right.
+
+**funeral** - ceremony held in connection with burial; burial procession accompanying body to grave; end of existence
+- Hundreds of friends and colleagues attended the beloved professor's funeral.
+- Everyone wore dark, formal clothing to show respect at the funeral.
+
+**furious** - extreme anger; raging; full of activity; energetic or rapid
+- She was furious when she discovered that someone had scratched her new car.
+- The chef worked at a furious pace to prepare orders during the dinner rush.
+
+**furnace** - enclosed place in which heat is produced; place or time of punishment or great trial
+- The technician repaired the broken furnace just before the winter freeze arrived.
+- Workers melted the scrap iron inside a massive industrial furnace.
+
+**furnish** - provide; supply; equip with what is needed, especially to provide furniture for
+- It took us several months to fully furnish our new apartment.
+- Please furnish the committee with copies of your financial records by Friday.
+
+**furniture** - movable articles in a room or an establishment that make it fit for living or working
+- We rearranged the living room furniture to create more open floor space.
+- Solid oak furniture tends to last much longer than particleboard pieces.
+
+**furrow** - trench in the earth made by a plow; any trench, channel, or groove, as in wood or metal; wrinkle on the face
+- The farmer planted corn seeds evenly along each freshly plowed furrow.
+- A deep furrow appeared between his eyebrows as he concentrated on the puzzle.
+
+**further** - get greater distance; make more in advance
+- We decided to hike two miles further up the trail to reach the waterfall.
+- She pursued a master's degree to further her career in public health.
+
+**furthermore** - in addition; moreover
+- The hotel is centrally located; furthermore, it offers complimentary breakfast to all guests.
+- He lacked the required experience, and furthermore, his references were incomplete.
+
+**fury** - violent anger; rage; uncontrolled action; turbulence
+- The coastal town braced itself against the full fury of the approaching hurricane.
+- He slammed the door shut in a sudden burst of fury.
+
+**fuse** - combine; blend; become plastic or fluid or liquefied from heat
+- The chef likes to fuse traditional Japanese flavors with modern French techniques.
+- Extreme heat caused the two copper wires to fuse together.
+
+**fuss** - angry disturbance; excited state of agitation; needlessly nervous or useless activity; protest; quarrel
+- She made a big fuss over a minor typo in the email.
+- The baby settled down and fell asleep without any fuss.
+
+**fussy** - easily upset; given to bouts of ill temper; full of superfluous details
+- Toddlers often become fussy when they miss their afternoon nap.
+- He is very fussy about how his coffee is brewed each morning.
+
+---
+
+### PAGE 73
+
+**gale** - very strong wind; gust of wind; emotional outburst as laughter or tears
+- A fierce winter gale knocked down several power lines along the coast.
+- His hilarious impression sent the entire room into a gale of laughter.
+
+**gallery** - long usually narrow room; covered corridor
+- We spent the afternoon admiring contemporary sculptures at the downtown art gallery.
+- Spectators watched the parliamentary debate from the upper gallery.
+
+**gallop** - move or run rapidly or carelessly, as by a quadruped, particularly by a horse lifting alternately the fore feet and the hind feet, in successive leaps or bounds
+- The wild horses broke into a fast gallop across the open plains.
+- She let her horse gallop along the sandy shoreline at sunrise.
+
+**gamble** - play or game for money or other stake; lose or squander by gaming
+- He refuses to gamble at casinos because he dislikes risking his hard-earned money.
+- Launching a startup without market research is a huge financial gamble.
+
+**gang** - group of criminals who band together for mutual protection and profit; herd of buffalo or elk
+- Local police dismantled a notorious gang that had been smuggling stolen goods.
+- A cheerful gang of neighborhood kids played soccer in the park until dusk.
+
+**gaol** - place of confinement, especially for minor offenses or provisional imprisonment
+- The magistrate sentenced the repeat offender to thirty days in the county gaol.
+- Historic tours often include a visit to the old stone gaol built in the nineteenth century.
+
+**gap** - opening through mountains; pass; conspicuous difference or imbalance
+- We squeezed through a narrow gap in the hedge to reach the hidden garden.
+- The new mentorship program aims to close the skills gap among recent graduates.
+
+**garbage** - trash; worthless or nonsensical matter; food wastes
+- Remember to take the garbage out to the curb before the collection truck arrives.
+- Most of the articles on that website are sensationalized garbage.
+
+**garment** - any article of clothing, as coat or gown
+- Each delicate silk garment must be dry-cleaned rather than machine-washed.
+- The tailor carefully measured the customer before cutting fabric for the outer garment.
+
+**gasoline** - petrol; flammable liquid consisting of a mixture of refined petroleum hydrocarbons
+- We stopped at the service station to fill the tank with gasoline before hitting the highway.
+- Store gasoline only in approved, tightly sealed containers away from heat sources.
+
+**gauge** - measuring instrument; measure; judge
+- Check the tire pressure gauge to make sure the wheels are properly inflated.
+- It is difficult to gauge public reaction before the product officially launches.
+
+**gaze** - fix the eyes in a steady and earnest look; look with eagerness or curiosity, as in admiration, astonishment
+- They lay on the blanket to gaze up at the meteor shower.
+- She turned her gaze toward the window as the train pulled out of the station.
+
+**gear** - toothed machine part, such as a wheel or cylinder, to transmit motion or to change speed or direction
+- Shift into a lower gear when driving up a steep mountain road.
+- We packed all our camping gear into the trunk of the SUV.
+
+**gem** - precious stone; jewel; pearl or mineral that has been cut and polished for use as an ornament
+- The centerpiece of the royal crown was a rare, flawless blue gem.
+- That tucked-away neighborhood bakery is a true hidden gem.
+
+**generalization** - an idea having general application; reasoning from detailed facts to general principles
+- Saying that all cats dislike water is an inaccurate generalization.
+- Good scientific theories avoid hasty generalizations based on small sample sizes.
+
+**generalize** - reach conclusion; become systemic and spread throughout the body
+- You cannot generalize about an entire culture from a single weekend visit.
+- The researchers were careful not to generalize their findings beyond the studied age group.
+
+**generate** - bring into being; give rise to; produce
+- Wind turbines generate clean electricity without emitting greenhouse gases.
+- The viral advertisement helped generate thousands of new leads for the company.
+
+**generation** - all offspring at same stage from common ancestor; interval of time between the birth of parents and their offspring
+- That family recipe has been passed down from generation to generation.
+- Younger generations rely heavily on smartphones for daily communication.
+
+**generator** - one that generates, especially converts mechanical energy into electrical energy; apparatus that generates vapor
+- The hospital relies on a backup diesel generator during severe power outages.
+- We brought a portable generator to power our lights at the remote campsite.
+
+**generosity** - noble birth; quality of being noble; noble-mindedness; liberality in giving
+- She was widely praised for her generosity toward local animal shelters.
+- Thank you for your kindness and generosity during our visit.
+
+**generous** - more than adequate; willing to give and share unstintingly
+- The restaurant serves remarkably generous portions at very reasonable prices.
+- He made a generous donation to help fund the scholarship program.
+
+---
+
+### PAGE 74
+
+**genius** - exceptional creative ability; unusual mental ability; someone who is dazzlingly skilled in any field
+- Mozart was a musical genius who began composing symphonies as a young child.
+- Using a simple rubber band to fix the jammed latch was a stroke of genius.
+
+**gentle** - well-born; of a good family or respectable birth; mild; meek; bland; amiable; tender
+- A gentle breeze rustled the leaves on the warm summer afternoon.
+- The veterinarian used a gentle touch to calm the frightened puppy.
+
+**genuine** - authentic; real; true
+- An appraiser confirmed that the painting was a genuine work from the Renaissance.
+- She offered a genuine apology that immediately eased the tension between them.
+
+**geology** - science which treats the structure and mineral constitution of the globe
+- She studied geology in college to learn how earthquakes and volcanoes shape the Earth.
+- The canyon's colorful rock layers reveal millions of years of regional geology.
+
+**geometry** - mathematics of the properties, measurement, and relationships of points, lines, angles, surfaces, and solids
+- Architects use principles of geometry to design stable, symmetrical structures.
+- In geometry class today, we learned how to calculate the volume of a cylinder.
+
+**germ** - bacteria; earliest form of an organism; seed
+- Washing your hands thoroughly with soap is the best way to prevent the spread of germs.
+- That casual remark planted the germ of an idea for her next novel.
+
+**gesture** - motion of hands or body to emphasize or help to express a thought or feeling
+- He raised his hand in a friendly gesture of greeting from across the street.
+- Bringing flowers to the dinner host is always a thoughtful gesture.
+
+**giant** - person of extraordinary strength or powers, bodily or intellectual
+- In the fairy tale, a brave tailor outsmarts a towering giant living in the clouds.
+- The tech giant announced plans to open a new research campus next year.
+
+**gigantic** - exceedingly large; huge; very large or extensive
+- A gigantic cargo ship slowly navigated through the narrow canal.
+- Cleaning up the oil spill required a gigantic coordinated effort.
+
+**giggle** - laugh with short catches of the breath or voice; laugh in light, affected, or silly manner
+- The two best friends could not stop giggling during the quiet assembly.
+- A nervous giggle escaped her lips when she realized she had forgotten her lines.
+
+**ginger** - plant of the genus Zingiber, of the East and West Indies
+- Freshly grated ginger adds a warm, spicy kick to stir-fry dishes.
+- She sipped hot tea infused with lemon and ginger to soothe her sore throat.
+
+**glare** - light; brightness; fierce or angry stare
+- Polarized sunglasses help reduce the blinding glare off the wet pavement.
+- He shot an icy glare at the person talking loudly in the movie theater.
+
+**glassware** - an article of tableware made of glass
+- Wrap the delicate crystal glassware in bubble wrap before packing it into boxes.
+- The shop specializes in hand-blown glassware imported from Italy.
+
+**gleam** - cause to emit a flash of light
+- Sunlight made the freshly waxed hood of the sports car gleam.
+- A faint gleam of hope appeared when rescuers heard tapping beneath the rubble.
+
+**glide** - slide; move in a smooth, effortless manner
+- The hawk spread its wings to glide silently over the valley.
+- Ice skaters seemed to glide effortlessly across the freshly resurfaced rink.
+
+**glimpse** - glance; a quick look; see briefly; a brief or incomplete view
+- I caught a quick glimpse of the rare bird before it flew into the canopy.
+- Her diary offers a fascinating glimpse into life during the nineteenth century.
+
+**glisten** - sparkle or shine, especially shine with a mild, subdued, and fitful luster; emit a soft, scintillating light; gleam
+- Morning dew made the spiderwebs glisten in the early sunlight.
+- Tears began to glisten in his eyes during the emotional farewell speech.
+
+**glitter** - bright, sparkling light; brilliant and showy luster; brilliancy
+- The city skyline began to glitter with thousands of lights as night fell.
+- Crafts involving fine glitter are fun for kids, though difficult to vacuum afterward.
+
+**global** - worldwide; international; having the shape of a globe
+- Climate change is a pressing global issue that requires international cooperation.
+- The company expanded its global supply chain to reach customers on six continents.
+
+**globe** - body with the shape of a sphere, especially a representation of the earth in the form of a hollow ball
+- The geography teacher spun the desktop globe to point out the equator.
+- Journalists traveled across the globe to cover the historic summit.
+
+**gloom** - partial or total darkness; thick shade; obscurity; shady, gloomy, or dark place or grove; cloudiness or heaviness of mind
+- An atmosphere of deep gloom settled over the stadium after the home team lost.
+- We peered into the dim gloom of the unlit cellar with a flashlight.
+
+**gloomy** - imperfectly illuminated; dusky; dim; clouded
+- Gray clouds and steady drizzle made for a cold, gloomy afternoon.
+- Despite the gloomy economic forecast, local businesses remained optimistic.
+
+**glorify** - cause to seem more splendid; beautify
+- Action films often glorify reckless behavior without showing the real-world consequences.
+- Poets wrote epic verses to glorify the achievements of the ancient heroes.
+
+**glorious** - having or deserving glory; famous; characterized by great beauty and splendor; magnificent; wonderful
+- We woke up early to watch a glorious sunrise over the ocean.
+- The team celebrated a glorious victory after an undefeated season.
+
+---
+
+### PAGE 75
+
+**glossary** - brief explanation of words, often placed at back of book
+- Check the glossary at the back of the textbook if you encounter unfamiliar technical terms.
+- The author included a helpful glossary of historical nautical terms.
+
+**glow** - shine with an intense or white heat; give forth vivid light and heat; exhibit a strong, bright color
+- The dying embers of the campfire continued to glow warmly in the dark.
+- Her face seemed to glow with pride as she accepted the award.
+
+**glue** - be fixed as if by sticky substance; join or attach with or as if sticky substance
+- Use strong wood glue to repair the broken chair leg.
+- Kids spent the afternoon gluing colorful paper shapes onto poster board.
+
+**glut** - fill beyond capacity, especially with food; swallow greedily
+- A sudden glut of imported grain caused domestic prices to drop sharply.
+- Do not glut yourself on appetizers before the main course arrives.
+
+**gnaw** - bite or chew on with the teeth
+- The puppy loves to gnaw on rubber chew toys while teething.
+- Doubt began to gnaw at his confidence as the deadline approached.
+
+**goal** - end; objective; final purpose or aim
+- Her primary goal this year is to run a half-marathon in under two hours.
+- The striker scored the winning goal in the final minute of play.
+
+**goat** - any of various ruminant mammals, of the genus Capra, related to the sheep; scapegoat
+- A sure-footed mountain goat climbed effortlessly along the steep rocky cliff.
+- Cheese made from fresh goat milk has a distinct, tangy flavor.
+
+**gorge** - stuff oneself; overeat; make a pig of oneself
+- It is easy to gorge on sugary snacks during holiday parties.
+- The hikers stopped to admire a dramatic river gorge carved through red rock.
+
+**gorgeous** - dazzlingly beautiful; magnificent
+- Everyone gasped at the gorgeous view of the snow-capped peaks from the balcony.
+- She wore a gorgeous emerald evening gown to the charity gala.
+
+**gossip** - rumor; malicious report about other people; light informal conversation for social occasions
+- I try to stay away from office gossip because it creates unnecessary drama.
+- They spent an hour catching up over coffee and harmless neighborhood gossip.
+
+**govern** - make and administer the public policy and affairs of
+- Elected officials are chosen to govern fairly and represent the interests of their citizens.
+- Strict international rules govern the transport of hazardous materials.
+
+**governor** - head of a state government
+- The state governor declared a state of emergency ahead of the severe blizzard.
+- Voters will elect a new governor in the upcoming November election.
+
+**gown** - loose, flowing upper garment; ordinary outer dress of woman; official robe of certain professional men
+- Graduates put on their black caps and gowns before lining up for the ceremony.
+- The designer spent hundreds of hours hand-stitching beads onto the wedding gown.
+
+**grab** - take or grasp suddenly; snatch; capture
+- Let me grab my umbrella before we walk out into the rain.
+- A bold headline is essential to grab the reader's attention immediately.
+
+**grace** - elegance and beauty of movement or expression; short prayer of thanks before a meal
+- The ballerina moved across the stage with remarkable poise and grace.
+- Before dinner began, the family held hands and said a brief grace.
+
+**graceful** - elegant; showing grace of movement, form, or proportion
+- Swans are famous for their long necks and graceful movements on the water.
+- The bridge features a graceful stone arch spanning the river.
+
+**gracious** - beneficent; merciful; disposed to show kindness or favor
+- Our gracious hosts made sure every guest felt welcome and comfortable.
+- Even in defeat, the tennis champion was gracious and praised her opponent.
+
+**grade** - step or degree in any series, rank, quality, order; relative position or standing
+- He studied hard all semester to earn a top grade in organic chemistry.
+- Only the highest grade of lumber is used to build custom acoustic guitars.
+
+**gradual** - proceeding by steps or degrees; advancing, step by step, as in ascent or descent or from one state to another; regularly progressive
+- Recovering from knee surgery is a gradual process that takes months of physical therapy.
+- Notice the gradual shift in leaf colors as summer transitions into autumn.
+
+**graduate** - one who has received an academic or professional degree; one who has completed the prescribed course of study
+- Every college graduate walked across the stage to receive a diploma.
+- She plans to graduate with honors in mechanical engineering next spring.
+
+**grand** - large and impressive in size, scope, or extent
+- The hotel lobby featured a grand marble staircase and crystal chandeliers.
+- They unveiled a grand plan to revitalize the entire waterfront district.
+
+**granite** - common, coarse-grained, light-colored, hard igneous rock consisting chiefly of quartz; unyielding endurance
+- Durable granite countertops are popular in modern kitchens because they resist heat and scratches.
+- The monument was carved from a single massive block of gray granite.
+
+**grant** - allow to have; give on the basis of merit; be willing to concede
+- The university awarded her a research grant to study renewable battery technology.
+- I grant that your approach is faster, though mine may be more thorough.
+
+**graph** - chart; a drawing illustrating the relations
+- The line graph clearly shows a steady increase in website traffic over six months.
+- Students plotted the experimental data points on a sheet of graph paper.
+
+**grasp** - grip; take hold of or seize firmly with or as if with the hand
+- Grasp the handrail firmly while walking down the icy steps.
+- It took me a few minutes to fully grasp the logic behind the math proof.
+
+**grasshopper** - terrestrial plant-eating insect; young student in initial stages of training
+- A green grasshopper leaped out of the tall meadow grass as we walked by.
+- Swarms of grasshoppers can quickly devour crops if left unchecked.
+
+---
+
+### PAGE 76
+
+**grateful** - thankful; appreciative of benefits received
+- I am deeply grateful to my neighbors for watering my plants while I was away.
+- She sent a handwritten card to show how grateful she was for the job referral.
+
+**gratify** - give pleasure to; satisfy; indulge; make happy
+- It always gratifies a teacher to see former students succeed in their careers.
+- He bought the rare comic book to gratify his lifelong passion for collecting.
+
+**gratis** - free, without charge; costing nothing
+- Conference attendees received a copy of the keynote speaker's book gratis.
+- The museum offers admission gratis on the first Sunday of every month.
+
+**gratitude** - state of being grateful; warm and friendly feeling toward a benefactor; thankfulness
+- Volunteers were overwhelmed by the community's outpouring of gratitude.
+- Expressing daily gratitude can noticeably improve your overall mood.
+
+**grave** - place for the burial; death or extinction
+- Family members placed fresh white lilies beside the stone grave.
+- The doctor warned that ignoring the symptoms could lead to grave health complications.
+
+**gravel** - small stones, or fragments of stone; very small pebbles, often intermixed with particles of sand
+- Our tires crunched loudly as we pulled onto the long gravel driveway.
+- Workers spread fresh gravel along the muddy walking path to improve drainage.
+
+**gravity** - seriousness; solemn and dignified feeling; natural force between two massive bodies
+- Earth's gravity keeps the moon in orbit and holds our feet on the ground.
+- The jury listened intently, fully aware of the gravity of the charges.
+
+**graze** - scrape gently; feed on growing grasses and herbage
+- Dairy cows peacefully graze in the green pasture every morning.
+- The falling branch happened to graze his shoulder without causing any serious injury.
+
+**grease** - oil; fat; state of being covered with unclean things
+- Apply a thin layer of grease to the bicycle chain to keep it running smoothly.
+- Dish soap easily cuts through stubborn cooking grease on pots and pans.
+
+**greedy** - wanting to get more than one can reasonably get
+- Greedy investors ignored the warning signs and lost everything when the bubble burst.
+- Do not be greedy—leave enough pizza slices for everyone else at the table.
+
+**greenhouse** - house in which tender plants are cultivated and sheltered from the weather
+- They grow fresh tomatoes and herbs year-round inside a heated glass greenhouse.
+- Reducing carbon emissions helps limit the trapping of heat by greenhouse gases.
+
+**grief** - pain of mind; mental suffering arising from any cause, as misfortune, loss of friends; sorrow; sadness
+- She needed time and quiet support to process her grief after losing her grandfather.
+- Everyone experiences grief differently when facing a major personal loss.
+
+**grieve** - cause to be sorrowful; distress
+- The entire town continues to grieve the loss of its historic theater in the fire.
+- It grieves me to see close friends drift apart over a simple misunderstanding.
+
+**grim** - unrelenting; rigid; dismal and gloomy; cold and forbidding
+- Rescue workers faced a grim reality as the storm intensified overnight.
+- He maintained a grim expression while delivering the disappointing budget news.
+
+**grin** - act of withdrawing lips and showing teeth; broad smile
+- A wide grin spread across the boy's face when he unwrapped his birthday bicycle.
+- She tried to hide a mischievous grin when her prank worked perfectly.
+
+**grind** - crush; scrape; reduce to small pieces or particles by pounding or abrading
+- I like to grind fresh coffee beans every morning for the best flavor.
+- The heavy millstones slowly grind wheat kernels into fine flour.
+
+**grip** - hold fast or firmly; seize as in a wrestling match
+- Keep a firm grip on the steering wheel during strong crosswinds.
+- The suspenseful thriller managed to grip the audience from the very first scene.
+
+**groan** - give forth a low, moaning sound in breathing
+- He let out a loud groan as he lifted the heavy box of books off the floor.
+- Students began to groan when the teacher announced a surprise pop quiz.
+
+**groove** - long narrow furrow or channel; settled routine; very pleasurable experience
+- The needle sits inside a tiny spiral groove to play music on a vinyl record.
+- Once the team found its groove, they finished the project two days ahead of schedule.
+
+**grope** - search blindly or uncertainly; reach about uncertainly; feel one's way
+- I had to grope along the hallway wall to find the light switch during the blackout.
+- In the interview, he seemed to grope for the right words to explain the discrepancy.
+
+**gross** - of huge size; excessively large; coarse; rough; not fine or delicate
+- The company reported a gross revenue of five million dollars before deducting expenses.
+- Leaving rotting food in the sink for a week is completely gross.
+
+**ground** - solid surface of the earth; bottom; lowest part
+- Autumn leaves blanketed the damp ground throughout the park.
+- We refused to give up any ground during the final round of negotiations.
+
+**grove** - group of trees smaller than a forest; orchard
+- We enjoyed a quiet picnic in the shade of an old olive grove.
+- A narrow dirt path winds directly through the citrus grove behind the farmhouse.
+
+**growl** - utter a deep guttural sound, as angry dog; give forth an angry, grumbling sound; emit low guttural sound
+- The guard dog let out a low warning growl when a stranger approached the gate.
+- My stomach began to growl loudly because I skipped breakfast this morning.
+
+**grudge** - be unwilling or reluctant to give or admit; be envious; show discontent
+- Holding a bitter grudge only hurts your own peace of mind in the long run.
+- Even her rivals do not grudge her the success she earned through hard work.
+
+**grumble** - utter or emit low dull rumbling sounds
+- Commuters began to grumble when the morning train was delayed for the third time this week.
+- Distant thunder started to grumble across the dark horizon.
+
+---
+
+### PAGE 77
+
+**guarantee** - pledge that something will happen or that something is true
+- The appliance comes with a two-year warranty that guarantees free repairs for defects.
+- Hard work does not guarantee success, but it greatly improves your odds.
+
+**guardian** - one who guards, preserves, or secures; one who has, or is entitled to custody of person or property
+- A parent or legal guardian must sign the permission slip before the field trip.
+- The museum's chief curator acts as a dedicated guardian of priceless cultural artifacts.
+
+**guess** - form an opinion concerning, without knowledge or means of knowledge; judge of at random
+- Without looking at a clock, I would guess it is around three in the afternoon.
+- Can you guess how many jellybeans are inside this glass jar?
+
+**guilt** - state of one who has broken a moral or political law; crime; criminality; offense against right
+- The prosecutor presented clear forensic evidence proving the suspect's guilt beyond doubt.
+- He felt a sharp pang of guilt for forgetting his sister's birthday.
+
+**guilty** - deserving of blame; adjudged to have committed crime
+- After hours of deliberation, the jury found the defendant guilty on all counts.
+- I am guilty of hitting the snooze button far too many times on Monday mornings.
+
+**gulf** - an arm of a sea or ocean partly enclosed by land; larger than a bay
+- Warm waters from the gulf help moderate winter temperatures along the southern coast.
+- A wide cultural gulf separated the two neighboring communities.
+
+**gulp** - swallow; utter or make a noise, as when swallowing too quickly
+- He took a huge gulp of cold water after finishing his five-mile run.
+- She had to gulp down her nervousness before stepping onto the stage.
+
+**gust** - blast; outburst
+- A sudden gust of wind blew my hat right off my head and into the street.
+- Strong gusts rattled the windowpanes throughout the night.
+
+**gutter** - channel at the eaves of a roof for conveying away the rain; eaves channel; eaves trough
+- We climbed a ladder to clear wet autumn leaves out of the clogged roof gutter.
+- Rainwater rushed down the street gutter toward the storm drain.
+
+**gymnasium** - place or building where athletic exercises are performed; a school for gymnastics
+- The high school basketball tournament was held in the main gymnasium.
+- Students gathered in the gymnasium for the morning assembly.
+
+**gymnastics** - sport that involves exercises intended to display strength and balance and agility
+- Olympic gymnastics requires years of intense training in balance, strength, and flexibility.
+- She has been competing in artistic gymnastics since she was six years old.
+
+---
+
+### PAGE 78
+
+**habit** - established disposition of the mind or character; distinctive dress, especially of a religious order
+- Drinking a tall glass of water right after waking up is a healthy daily habit.
+- He has an annoying habit of tapping his pen on the desk while thinking.
+
+**haggard** - wasted away; showing wearing effects of overwork or suffering
+- After pulling two all-nighters in a row, the student looked pale and haggard.
+- Exhausted hikers emerged from the trail looking tired and haggard.
+
+**haggle** - argue about prices; bargain, as over the price of something
+- Tourists often enjoy trying to haggle over prices at bustling street markets.
+- They spent twenty minutes haggling over the cost of the antique rug.
+
+**hail** - call for; salute; greet; praise vociferously
+- We stood on the sidewalk trying to hail a passing taxi in the pouring rain.
+- Critics hailed the director's latest film as a modern masterpiece.
+
+**hairy** - bearing or covered with hair; made of or resembling hair; rough with hair
+- The large, hairy spider startled everyone when it crawled across the patio.
+- Driving down that icy mountain pass without snow chains was a pretty hairy experience.
+
+**hallmark** - sign; feature; mark indicating quality or excellence
+- Attention to tiny details is the hallmark of a truly skilled craftsperson.
+- Clear, concise writing is a hallmark of effective journalism.
+
+**halt** - stop; stand in doubt; hesitate
+- Construction on the new bridge came to a sudden halt due to heavy flooding.
+- The security guard raised his hand to halt traffic at the crosswalk.
+
+**ham** - meat cut from the thigh of a hog, usually smoked
+- He made a toasted sandwich with sliced smoked ham, Swiss cheese, and mustard.
+- Baked ham glazed with honey and cloves is a traditional centerpiece at holiday dinners.
+
+**hamburger** - a fried bread of minced beef served on a bun
+- We grilled juicy hamburgers in the backyard for the Fourth of July cookout.
+- She ordered a classic hamburger with lettuce, tomato, and pickles.
+
+**hamper** - put at disadvantage; prevent progress or free movement of
+- Heavy rain and thick mud continued to hamper search-and-rescue efforts.
+- Tight, restrictive clothing can hamper your range of motion during exercise.
+
+**handbook** - concise reference book providing specific information
+- New hires receive an employee handbook outlining company policies and benefits.
+- Keep a first-aid handbook in your emergency kit for quick reference.
+
+**handful** - a small number
+- Only a handful of people showed up to the early morning workshop.
+- He grabbed a handful of roasted almonds for a quick afternoon snack.
+
+**handicap** - disadvantage; physical disability; cripple; hinder; impede
+- Lack of funding proved to be a major handicap for the small research team.
+- Building wheelchair ramps removes physical handicaps in public buildings.
+
+**handle** - touch; feel with the hand; use or hold with the hand; manage in using; deal with
+- She knows how to calmly handle high-pressure customer complaints.
+- Be careful when you handle raw chicken so you do not cross-contaminate surfaces.
+
+**handsome** - skillful; handy; agreeable to the eye or to correct taste; having a pleasing appearance; attractive
+- He looked very handsome in his tailored charcoal suit at the wedding.
+- They sold their renovated Victorian house for a handsome profit.
+
+**handy** - convenient; close
+- Keep a flashlight handy in the kitchen drawer in case the power goes out.
+- My brother is very handy with tools and can fix almost any household appliance.
+
+**hang** - suspend; fasten to some elevated point without support from below; hold for support
+- Let us hang the framed landscape painting right above the living room sofa.
+- Wet coats were left to hang on hooks by the front door.
+
+**hanger** - one who hangs, or causes to be hanged; loop or strap by which something is hung
+- Put your dress shirt on a wooden hanger so it does not get wrinkled in the closet.
+- The closet rod was crowded with plastic and wire hangers.
+
+**haphazard** - not thorough, constant or consistent; by chance
+- Books were stacked in a completely haphazard pile on the corner of his desk.
+- Taking a haphazard approach to studying rarely leads to consistent exam scores.
+
+**harbor** - provide a refuge for; hide; give shelter to
+- Fishing boats returned to the sheltered harbor before the storm hit.
+- It is important not to harbor resentment after an argument has been resolved.
+
+**harden** - become hard or harder
+- Give the freshly poured concrete twenty-four hours to fully harden before walking on it.
+- Years of working outdoors in harsh weather seemed to harden his hands.
+
+**hardware** - mechanical, magnetic, electronic, and electrical components making up a computer system
+- Upgrading the computer's internal hardware significantly improved its processing speed.
+- We stopped at the local hardware store to buy screws, hinges, and wood stain.
+---
