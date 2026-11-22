@@ -10028,3 +10028,1469 @@ Fresh water flowed from a natural fountain in the hills.
 - Upgrading the computer's internal hardware significantly improved its processing speed.
 - We stopped at the local hardware store to buy screws, hinges, and wood stain.
 ---
+### PAGE 79
+
+**hardy** - in robust and good health; able to survive under unfavorable conditions
+- Mountain pine trees are hardy enough to grow on rocky slopes in freezing temperatures.
+- She is a hardy traveler who adapts easily to rough camping conditions.
+
+**harmful** - damaging; noxious; detrimental; dangerous
+- Prolonged exposure to loud noise can be harmful to your hearing.
+- Spreading rumors online is harmful to people's reputations.
+
+**harmless** - unlikely to harm or disturb anyone
+- Most garden spiders look scary, but they are completely harmless to humans.
+- It was just a harmless joke among close friends.
+
+**harmonious** - concordant; accordant; suitable and fitting
+- The choir sang in harmonious blend across all four vocal parts.
+- Soft blue walls and natural wood created a harmonious living space.
+
+**harmony** - compatibility in opinion and action; an agreeable sound property
+- Neighbors worked together in harmony to clean up the community park.
+- The composer achieved rich harmony between the strings and brass.
+
+**harness** - stable gear consisting of an arrangement to an animal so that it can be attached to and pull a cart
+- The farmer fastened the leather harness onto the draft horse before plowing.
+- Climbers checked every buckle on their safety harness before ascending the cliff.
+
+**harsh** - rough; coarse; severe; unpleasantly stern
+- Harsh winter winds stripped the remaining leaves from the branches.
+- The critic wrote a harsh review of the poorly staged play.
+
+**harvest** - gather; yield from plants in a single growing season
+- Farmers began the wheat harvest early this year after warm spring weather.
+- This region produces a bountiful harvest of olives every autumn.
+
+**haste** - hurry; rapidity of action or motion
+- In his haste to catch the train, he left his umbrella on the table.
+- Haste often leads to careless mistakes in data entry.
+
+**hasten** - accelerate; quicken
+- Dark clouds gathered rapidly, hastening our walk back to the shelter.
+- The new software update will hasten file indexing across large drives.
+
+**hasty** - easily angered; irritable; made too quickly to be accurate or wise
+- Making a hasty decision without checking the numbers can be costly.
+- Do not jump to a hasty conclusion before hearing both sides.
+
+**hatch** - breed; emerge from the egg
+- Dozens of sea turtle hatchlings broke out of their shells and headed toward the water.
+- The poultry farm plans to hatch five hundred chicks this month.
+
+**haughty** - high; lofty; bold; arrogant; overbearing
+- His haughty attitude toward junior staff made him unpopular in the office.
+- She dismissed the suggestion with a haughty wave of her hand.
+
+**haul** - draw slowly or heavily; pull or drag forcibly; shift direction
+- Sailors helped haul the heavy fishing nets onto the deck.
+- The truck made a long haul across three states overnight.
+
+**haunt** - be a regular or frequent visitor to a certain place; bother; disturb
+- Memories of that missed opportunity continued to haunt him for years.
+- Old local legends say a ghost haunts the abandoned lighthouse.
+
+**hawk** - bird of prey typically having short rounded wings and a long tail
+- A red-tailed hawk circled high above the open field looking for prey.
+- She watches market trends like a hawk every morning.
+
+**hay** - grass or other plants, cut and dried for fodder
+- Bundles of golden hay were stacked neatly inside the wooden barn.
+- Horses munched on fresh hay while waiting in their stalls.
+
+**hazard** - danger; risk
+- Ice on the highway creates a serious hazard for morning commuters.
+- Ignoring safety protocols is a workplace hazard no team should accept.
+
+**heading** - course or direction in which a ship or aircraft is moving; title, subtitle, or topic that stands at the top or beginning
+- The captain set a due-north heading to avoid the storm system.
+- Divide your report into clear sections with descriptive headings.
+
+**headlong** - uncontrollably forceful or fast; done with head leading; headfirst
+- He plunged headlong into the new project without taking a single day off.
+- The river rushed headlong through the narrow canyon after heavy rain.
+
+**heal** - cure; make or get healthy again
+- Rest and proper nutrition help a sprained ankle heal faster.
+- Time and honest conversation can heal strained relationships.
+
+**heap** - crowd or throng; a great number of persons; pile or mass
+- Laundry piled up in a growing heap on the bedroom chair.
+- A heap of autumn leaves covered the garden path.
+
+**hearing** - opportunity to be heard; capacity to hear; judicial investigation of a suit at law
+- The committee scheduled a public hearing to gather feedback on the zoning plan.
+- Wearing ear protection at concerts helps preserve your hearing over time.
+
+**heave** - cause to move upward or onward by a lifting effort; lift; raise; hoist; throw
+- Together they managed to heave the heavy crate onto the back of the truck.
+- She let out a deep heave of relief once the final exam ended.
+
+**heaven** - expanse of space surrounding the earth; sky; place where the sun, moon, and stars appear
+- Clear desert skies felt like looking straight into the heavens at night.
+- Finding a quiet café with great coffee on a rainy day feels like heaven.
+
+**hedge** - thicket of bushes, usually thorn bushes
+- A neatly trimmed privet hedge borders the front yard.
+- She hedged her answer slightly so she would not overpromise on the timeline.
+
+**hedgehog** - small European insectivore, and other allied species of Asia and Africa, having the hair on the upper part of its body mixed with prickles or spines
+- A small hedgehog curled into a tight ball of spines when startled.
+- We spotted a hedgehog foraging near the garden fence after dusk.
+
+---
+
+### PAGE 80
+
+**heed** - pay attention to; listen to and consider
+- Drivers should heed weather warnings before crossing mountain passes.
+- He chose not to heed his friend's advice and regretted it later.
+
+**heel** - back part of the human foot; lower end of a ship's mast
+- She developed a blister on her heel after walking three miles in new shoes.
+- The cobbler replaced the worn rubber heel on the leather boot.
+
+**heighten** - enhance; hoist; raise or increase the quantity or degree of; intensify
+- Background music can heighten tension during a dramatic scene.
+- Lack of sleep tends to heighten stress and irritability.
+
+**heir** - person who inherits some title or office
+- The eldest son was named heir to the family business.
+- She became the sole heir to her grandfather's estate.
+
+**heiress** - woman who is an heir, especially to great wealth
+- Tabloids closely followed the young heiress's charity galas and travel.
+- As the sole heiress to the fortune, she established a foundation for arts education.
+
+**helicopter** - aircraft without wings that obtains its lift from the rotation of overhead blades
+- A medical helicopter landed near the highway to transport the injured hiker.
+- We took a short helicopter tour over the coastal cliffs.
+
+**hell** - place of the dead, or of souls after death where sinners suffer eternal punishment; any place of pain and turmoil
+- Dealing with corrupted files right before a deadline felt like pure hell.
+- The summer heat wave turned the unairconditioned room into a sauna from hell.
+
+**helmet** - defensive covering for head; hat, made of cork, felt, or metal, worn as uniform of soldiers, firemen
+- Always wear a properly fitted helmet when riding a bicycle or motorcycle.
+- Firefighters put on heavy gear and helmets before entering the building.
+
+**helpful** - giving aid; assistant; useful; salutary
+- The customer support agent gave clear, helpful instructions to fix the bug.
+- Visual diagrams are often helpful when explaining complex workflows.
+
+**helpless** - unable to help oneself; powerless or incompetent; powerless; weak
+- We felt helpless watching the storm knock down trees in the yard.
+- Newborn kittens are completely helpless during their first few weeks.
+
+**hemisphere** - halves; half of a sphere bounded by a great circle
+- Seasons in the Southern Hemisphere are opposite to those in the Northern Hemisphere.
+- The surgeon operated on one hemisphere of the brain during the procedure.
+
+**hence** - from this place; from this time; from this reason; as an inference or deduction
+- The dataset is incomplete; hence, our conclusions remain tentative.
+- Ten years hence, this neighborhood will look completely different.
+
+**henceforth** - from this time forward; henceforward
+- Henceforth, all expense receipts must be submitted within seven days.
+- The policy takes effect today and applies henceforth to every department.
+
+**herald** - proclaim; announces important news; messenger
+- Blooming almond trees often herald the arrival of early spring.
+- Loud brass fanfare heralded the start of the opening ceremony.
+
+**herb** - plant lacking a permanent woody stem, some having medicinal properties
+- Fresh basil is a fragrant herb used in many Mediterranean dishes.
+- She grows culinary herbs like mint, rosemary, and thyme on the windowsill.
+
+**herd** - flock; crowd; group of cattle or other domestic animals
+- A herd of cattle grazed peacefully across the green valley.
+- Tourists gathered in a tight herd near the entrance of the museum.
+
+**hesitant** - reluctant, irresolute; tending to wait, or proceed with caution or reservation
+- He seemed hesitant to sign the contract before reviewing the last page.
+- She gave a hesitant nod, unsure whether everyone agreed with the plan.
+
+**hesitate** - pause or hold back in uncertainty or unwillingness
+- Do not hesitate to reach out if you run into any issues during setup.
+- He hesitated for a second before stepping onto the narrow suspension bridge.
+
+**hide** - prevent from being seen or discovered
+- Clouds began to hide the mountain peaks as evening approached.
+- The dog tried to hide his muddy paws under the kitchen table.
+
+**hideous** - frightful, shocking, or offensive to the eyes; offensive to moral sensibilities; despicable
+- The abandoned factory left a hideous scar along the riverfront.
+- Clashing neon colors made the poster look hideous.
+
+**hijack** - stop and rob a vehicle in transit; seize control of by use of force
+- Security protocols were upgraded to prevent anyone from hijacking the network.
+- A rival group tried to hijack the community discussion for their own agenda.
+
+**hike** - long walk usually for exercise or pleasure
+- We went on a brisk morning hike through the pine forest.
+- Fuel prices saw another sharp hike at the start of the month.
+
+**hinder** - put at a disadvantage; tie up; hamper; prevent the progress
+- Frequent network outages continue to hinder remote collaboration.
+- Poor lighting can hinder accurate color inspection in design work.
+
+**hindrance** - something that holds back or causes problems with something else; obstacle
+- Language barriers can be a hindrance during international negotiations.
+- Outdated tools became a daily hindrance for the repair crew.
+
+**hinge** - a joint that holds two parts together so that one can swing relative to the other
+- The wooden cabinet door squeaked because one hinge needed oil.
+- The success of the entire launch hinges on finishing QA testing by Thursday.
+
+**hint** - allusion; clue; brief or indirect suggestion
+- She dropped a subtle hint that she would love a book for her birthday.
+- The detective found a small hint that pointed toward a new suspect.
+
+---
+
+### PAGE 81
+
+**hinterland** - region; remote and undeveloped area
+- Small villages in the hinterland had limited access to high-speed internet.
+- Goods traveled from the port city into the surrounding hinterland by rail.
+
+**hiss** - prolonged sound like that letter s, made by forcing out the breath between the tongue and teeth
+- Steam began to hiss from the pressure valve on the stove.
+- An angry cat let out a sharp hiss when cornered.
+
+**historian** - one who is an authority on history
+- The historian spent ten years researching trade routes in the Mediterranean.
+- A prominent historian was invited to comment on the newly discovered archives.
+
+**historic** - having importance or significance in history; belonging to the past; historical
+- Signing the peace accord marked a historic turning point for the region.
+- Visitors walked through the historic district lined with centuries-old stone buildings.
+
+**hitchhike** - travel by getting free rides from passing vehicles; be carried along with something else
+- Backpackers used to hitchhike across the country with small packs and maps.
+- Tiny seeds can hitchhike on animal fur and spread to new habitats.
+
+**hitherto** - to this place; to a prescribed limit; up to this time; as yet; until now
+- The prototype had been tested hitherto only in controlled lab conditions.
+- Hitherto unknown manuscripts were uncovered in the monastery library.
+
+**hoarse** - having a harsh, rough, grating voice or sound, as when affected with a cold; making a rough, harsh cry or sound
+- After cheering all afternoon at the stadium, his voice sounded hoarse.
+- She spoke in a hoarse whisper so she would not wake the baby.
+
+**hobby** - auxiliary activity; activity or interest pursued outside one's regular occupation
+- Building mechanical keyboards became his favorite weekend hobby.
+- Gardening is a relaxing hobby that gets you outdoors.
+
+**hoe** - weed, cultivate, or dig up with a tool, which has flat blade attached at right angles to a long handle
+- She used a long-handled hoe to clear weeds between the vegetable rows.
+- He spent Saturday morning hoeing the garden soil before planting seeds.
+
+**hoist** - raise; lift; elevate
+- Crew members used a pulley system to hoist the heavy sail up the mast.
+- Cranes hoisted steel beams into place on the upper floor.
+
+**hold** - keep from departing; take and maintain control over; stop dealing with
+- Please hold the elevator door for just a moment.
+- She managed to hold onto her lead through the final lap.
+
+**hollow** - sound as if echoing in a empty space; void; vain; not solid; having a space or gap or cavity
+- The old oak tree had a hollow trunk large enough for a small shelter.
+- His apology sounded hollow because he repeated the same mistake the next day.
+
+**homely** - of home; domestic; familiar; intimate; plain; unpretending; rude in appearance; unpolished
+- The cabin had a warm, homely charm with braided rugs and pine walls.
+- She served a homely meal of lentil soup and crusty bread.
+
+**homesick** - unhappy at being away and longing for familiar things or persons
+- Many first-year students feel homesick during their first month away from family.
+- Listening to familiar music from home helped ease his homesickness.
+
+**hook** - a piece of metal, or other hard material, bent into curve or at angle, for catching, holding, or sustaining anything
+- Hang your coat on the brass hook beside the door.
+- The fisherman baited the hook carefully before casting the line.
+
+**hop** - move by successive leaps, as toads do; spring or jump on one foot
+- A rabbit hopped across the lawn and disappeared into the bushes.
+- We can hop on the express bus at the corner to save time.
+
+**horizon** - line at which the sky and Earth appear to meet; range of one's knowledge, experience, or interest
+- The sun sank low on the horizon, painting the clouds orange and gold.
+- Studying abroad broadened her horizons and introduced new ways of thinking.
+
+**horizontal** - flat; level; parallel to or in a base line
+- Use a spirit level to make sure the shelf is completely horizontal.
+- The design features clean horizontal lines across the facade.
+
+**horn** - one of the bony outgrowths on the heads of certain ungulates
+- The mountain ram had thick, curved horns that showed its age.
+- A car horn blared in the distance as traffic slowed down.
+
+**horrible** - exciting, or tending to horror or fear; hideous
+- We got caught in horrible traffic on the way to the airport.
+- It was a horrible experience watching the wildfire spread toward the ridge.
+
+**horror** - terror; fear; intense dislike
+- Residents watched in horror as floodwaters swept through the lower streets.
+- She has a strong horror of spiders and refuses to go near them.
+
+**hose** - a flexible pipe for conveying a liquid or gas
+- He used a garden hose to rinse mud off the patio tiles.
+- Firefighters connected a heavy hose to the nearest hydrant.
+
+**hospitable** - disposed to treat guests with warmth and generosity; receptive
+- Local residents are known for being warm and hospitable to visitors.
+- The coastal climate is less hospitable to delicate tropical plants in winter.
+
+**hospitality** - act or practice of one who is hospitable; reception and entertainment of strangers or guests without reward
+- We were deeply touched by the family's generous hospitality during our stay.
+- The hotel specializes in luxury hospitality and personalized service.
+
+**host** - great number; person entertaining guests
+- A host of volunteers arrived early to help set up the event.
+- Our host greeted everyone at the door with a warm welcome.
+
+---
+
+### PAGE 82
+
+**hostage** - prisoner who is held by one party to insure that another party will meet specified terms
+- Negotiators worked urgently to secure the safe release of every hostage.
+- Don't let your schedule be held hostage by constant unplanned meetings.
+
+**hostile** - unfriendly; showing the disposition of an enemy
+- The negotiations grew hostile after both sides refused to compromise.
+- A hostile takeover bid caught the company's board by surprise.
+
+**hound** - a variety of domestic dog, having large, drooping ears; side bar used to strengthen portions of gear of a vehicle
+- The hound followed the scent trail steadily through the woods.
+- Reporters hounded the celebrity with questions outside the venue.
+
+**house** - provide living quarters for; lodge; contain; harbor
+- The museum was built to house rare manuscripts and ancient coins.
+- That small apartment can comfortably house two students during the semester.
+
+**hover** - hang about; wait nearby; remain floating
+- A hummingbird hovered beside the flower before sipping nectar.
+- His cursor hovered over the submit button for a moment before he clicked.
+
+**howl** - utter a loud, mournful sound or cry, as dogs and wolves often do; utter a sound expressive of distress; cry aloud and mournfully
+- Wolves began to howl in the distance under the full moon.
+- Wind howled through the gaps in the old wooden shutters.
+
+**hug** - crowd together; keep close to; tight or amorous embrace
+- She gave her brother a warm hug when he arrived at the station.
+- The road hugs the coastline for nearly twenty miles.
+
+**hull** - outer covering of anything, particularly of a nut or of grain; outer skin of a kernel; husk
+- Workers inspected the ship's steel hull in dry dock before launching.
+- Remove the outer hulls from the beans before boiling them.
+
+**hum** - low, prolonged sound; humming noise; singing with shut mouth
+- The refrigerator kept up a steady, low hum in the quiet kitchen.
+- She hummed a familiar tune while washing the dishes.
+
+**humane** - marked by kindness, mercy, or compassion
+- The shelter follows humane standards for caring for rescued animals.
+- Reformers advocated for more humane conditions inside detention centers.
+
+**humanitarian** - philanthropic; one devoted to the promotion of human welfare and to social reforms
+- Humanitarian aid workers delivered clean water and medical supplies to the region.
+- She dedicated her career to humanitarian law and refugee support.
+
+**humanity** - kindness; virtue; all of the inhabitants of the earth
+- The rescue effort brought out the best of humanity in everyone involved.
+- Space exploration inspires curiosity across all of humanity.
+
+**humble** - low or inferior in station or quality; modest
+- Despite his major award, he remained humble and credited his team.
+- They started their business in a humble garage with two second-hand computers.
+
+**humid** - containing a high amount of water or water vapor
+- Summer afternoons near the coast are often hot and humid.
+- Tropical rainforests stay humid throughout the entire year.
+
+**humidity** - dampness; moisture
+- High humidity made the air feel much warmer than the thermometer showed.
+- A dehumidifier helps control humidity inside the basement.
+
+**humiliate** - cause to feel shame; hurt the pride of
+- No manager should humiliate an employee in front of the rest of the team.
+- Losing the championship match in the final seconds humiliated the favorites.
+
+**humorous** - employing or showing humor; funny; amusing
+- His speech included a few humorous stories that kept the audience smiling.
+- She wrote a humorous column about everyday life in a busy city.
+
+**hunger** - strong desire for something; feel the need to eat
+- After a long day of hiking, we felt a sharp hunger for a hot meal.
+- She has a lifelong hunger to learn new languages and skills.
+
+**hurl** - throw with great force; cast; toss
+- Strong gusts hurled rain against the windows throughout the night.
+- The athlete hurled the javelin across the field for a personal best.
+
+**husband** - use economically; conserve; save
+- Remote communities must husband their limited water supplies during dry spells.
+- Careful budgeting helps you husband your savings for emergencies.
+
+**hush** - make silent or quiet; keep from public knowledge; suppress mention of
+- A hush fell over the auditorium as the conductor stepped onto the podium.
+- The librarian gave a gentle hush when voices grew too loud.
+
+**hustle** - bustle; cause to move furtively and hurriedly
+- City streets were full of hustle and movement during morning rush hour.
+- The team had to hustle in the final minutes to finish on time.
+
+**hydrogen** - a nonmetallic univalent element that is normally a colorless and odorless highly flammable diatomic gas
+- Hydrogen is the lightest and most abundant chemical element in the universe.
+- Engineers are testing hydrogen fuel cells for zero-emission transport.
+
+**hygiene** - cleanliness; sanitation
+- Good personal hygiene and clean water help prevent common illnesses.
+- The restaurant earned top marks during its annual food hygiene inspection.
+
+**hymn** - song of praise or adoration, especially, a religious ode, a sacred lyric
+- The congregation stood to sing a traditional hymn at the start of the service.
+- A quiet hymn played softly in the background of the documentary.
+
+**hypocrisy** - act or practice of a hypocrite
+- Critics pointed out the hypocrisy of preaching sustainability while flying private jets daily.
+- Honesty builds trust, whereas hypocrisy quickly erodes it.
+
+---
+
+### PAGE 83
+
+**hypothesis** - assumption; theory
+- The researchers designed an experiment to test their hypothesis about memory recall.
+- New data forced the team to revise their initial hypothesis.
+
+**hypothetical** - based on assumptions; supposed
+- Let us walk through a hypothetical scenario where server traffic triples overnight.
+- The interview included a hypothetical question about handling conflicting priorities.
+
+**hysteria** - behavior exhibiting excessive or uncontrollable emotion, such as fear or panic; mental disorder
+- Crowd hysteria broke out briefly when the stadium lights went out.
+- Calm leadership helps prevent hysteria during unexpected emergencies.
+
+---
+
+### PAGE 83 (I)
+
+**ideal** - existing in idea or thought; conception; intellectual; mental; imaginary standard of excellence; fit for a model; faultless
+- Cool, quiet mornings are ideal for deep focus and writing.
+- His ideal weekend involves reading outdoors and cooking a slow meal.
+
+**identical** - duplicate; alike; being the exact same one
+- The twins wore nearly identical jackets that confused their classmates.
+- Both test runs produced identical results under the same parameters.
+
+**identification** - act of designating or identifying something; condition of having your identity established
+- Passengers must present photo identification before boarding the flight.
+- Early identification of bugs saves significant debugging time later.
+
+**identify** - detect; find out; discover
+- Engineers worked quickly to identify the root cause of the memory leak.
+- Can you identify this bird species from its song?
+
+**identity** - exact sameness; distinct personality of an individual regarded as a persisting entity
+- Cultural traditions often play a central role in shaping personal identity.
+- Always protect your personal data to prevent identity theft.
+
+**idiom** - expression whose meaning differs from meanings of its individual words; distinctive style
+- "Bite the bullet" is a common English idiom meaning to face a tough task bravely.
+- Every language has idioms that sound literal if translated word for word.
+
+**idiomatic** - having the nature of an idiom; characteristic of a given language
+- Her spoken Turkish sounded natural and idiomatic after living in Istanbul.
+- Using idiomatic phrasing makes translated dialogue feel much more authentic.
+
+**idiot** - foolish or stupid person; unlearned, ignorant, or simple person
+- I felt like an idiot for saving over the original file without a backup.
+- Calling teammates names never helps solve a technical problem.
+
+**idle** - useless; vain; trifling; unprofitable; thoughtless; given rest and ease; avoiding work or employment; lazy
+- Several servers sat idle overnight while waiting for scheduled batch jobs.
+- Spreading idle gossip wastes energy and harms team morale.
+
+**idol** - image used for worship; image of divinity; representation or symbol; false notion or conception
+- As a child, he had posters of his favorite music idols on his wall.
+- Archaeologists uncovered a small clay idol during the excavation.
+
+**ignite** - kindle; cause to start burning; set fire to
+- A single spark can ignite dry brush during a hot, windy afternoon.
+- Her speech helped ignite renewed enthusiasm across the volunteer group.
+
+**ignorance** - lack of knowledge or education
+- Laws are enforced regardless of a person's ignorance of the rules.
+- Public awareness campaigns aim to reduce ignorance about preventable diseases.
+
+**ignorant** - lacking education or knowledge; unaware
+- He was completely ignorant of the policy change until the meeting started.
+- It is easy to remain ignorant of other cultures if you never step outside your bubble.
+
+**ignore** - refuse to pay attention to; disregard; overlook; neglect
+- Do not ignore small warning signs when a machine starts making unusual noises.
+- She tried to ignore the distraction and finish her paragraph.
+
+**illegible** - incapable of being read; unclear; not legible
+- The rushed note left on the counter was almost completely illegible.
+- Please type your contact details so they are not illegible.
+
+**illiterate** - uncultured; uneducated; not able to read or write
+- Community programs provide evening classes to help illiterate adults learn to read.
+- Being digitally illiterate can make everyday tasks like online banking difficult.
+
+**illuminate** - provide or brighten with light; clear up or make understandable; enlighten
+- Streetlamps began to illuminate the wet cobblestones at dusk.
+- Clear examples help illuminate abstract concepts in mathematics.
+
+**illusion** - misleading vision; being deceived by a false perception or belief
+- Mirrors in the hallway create the illusion of a much wider space.
+- Believing there are shortcuts to mastery is a comforting illusion.
+
+**illusive** - deceptive; misleading; based on or having the nature of an illusion
+- Complete certainty in complex forecasts often proves illusive.
+- He chased an illusive promise of quick wealth instead of building steady skills.
+
+**illustrate** - represent; demonstrate; depict; clarify, as by use of examples or comparisons
+- The author used two real-world case studies to illustrate the concept.
+- Crisp diagrams illustrate how packets move across the network.
+
+**illustration** - picture; drawing; showing by example
+- Every chapter in the children's book features a colorful illustration.
+- Her story served as a clear illustration of why backups matter.
+
+**image** - visual representation; representation of a person
+- The photographer captured a crisp image of the mountain at sunrise.
+- Consistency in product quality builds a strong brand image over time.
+
+---
+
+### PAGE 84
+
+**imaginary** - having existence only in the imagination; fanciful; visionary
+- Children often invent imaginary friends and elaborate adventure worlds.
+- In complex numbers, the imaginary unit is represented by `i`.
+
+**imitate** - copy the actions, appearance, mannerisms, or speech of; mimic; use or follow as a model
+- Young birds learn songs partly by imitating older members of their flock.
+- New designers often imitate established styles before finding their own voice.
+
+**imitation** - emulation; copying the actions of someone else
+- The museum displayed a ceramic imitation of an ancient amphora.
+- Learning a language starts with listening and careful imitation of native sounds.
+
+**immediate** - not deferred by an interval of time; present; occurring at once; instant
+- The system outage requires our immediate attention before customers are affected.
+- She felt an immediate connection with the new team.
+
+**immediately** - proximately; directly; without interval of time; without delay; promptly; instantly; at once
+- Please report any suspicious email immediately to the security team.
+- The lights flickered and went out immediately after the thunderclap.
+
+**immense** - enormous; boundless; so great as to be beyond measurement
+- Maintaining clean data across an immense archive requires automated checks.
+- She felt immense gratitude toward everyone who supported her research.
+
+**immerse** - plunge into anything, especially a fluid; sink; dip
+- Reading daily in the target language helps you immerse yourself in natural phrasing.
+- He immersed himself in the project so deeply that he lost track of time.
+
+**immigrant** - one who comes to a country where they were not born in order to settle there; non-native
+- Many immigrants bring valuable skills and fresh perspectives to their new communities.
+- Her grandparents arrived as immigrants with little more than a suitcase.
+
+**immigrate** - move into another country to stay there permanently
+- Skilled engineers sometimes immigrate abroad for research or career opportunities.
+- They decided to immigrate after receiving permanent residency approval.
+
+**immigration** - migration into a place; moving into a place
+- Immigration policies often reflect shifting economic and demographic needs.
+- The museum features exhibits chronicling past waves of immigration.
+
+**imminent** - near at hand; close in time; about to occur
+- Dark storm clouds signaled that heavy rain was imminent.
+- Teams rushed to finish final checks ahead of the imminent product launch.
+
+**immoral** - not moral; contrary to conscience or the divine law; wicked; unjust; dishonest
+- Deliberately falsifying experimental data is both unethical and immoral.
+- Most people consider exploiting vulnerable workers to be deeply immoral.
+
+**immortal** - not mortal; exempt from liability to die; undying; imperishable; lasting forever
+- Great literature often gives its characters a kind of immortal life.
+- Legends in mythology frequently speak of immortal gods and goddesses.
+
+**impact** - forceful consequence; strong effect; influencing strongly
+- Rising interest rates can have a noticeable impact on household budgets.
+- The new curriculum had a positive impact on student engagement.
+
+**impart** - reveal or tell; grant a share of; bestow
+- Experienced mentors impart practical lessons that textbooks rarely cover.
+- Adding a pinch of sea salt helps impart depth to chocolate desserts.
+
+**impartial** - not biased; fair; showing lack of favoritism
+- A good judge must remain impartial and base rulings strictly on the evidence.
+- Readers look for impartial reporting when following contentious elections.
+
+**imperative** - having power command or control; critically importance; some duty that is essential and urgent
+- Backing up critical files before major system updates is imperative.
+- In grammar, commands like "Close the door" use the imperative mood.
+
+**implement** - put into effect; supply with tools
+- The team plans to implement the new caching layer next week.
+- It takes discipline to implement healthy habits consistently.
+
+**implication** - something hinted at or suggested; act of implying; condition of being implied
+- Researchers carefully analyzed the ethical implications of the new algorithm.
+- His silence carried a strong implication that he disagreed with the plan.
+
+**implore** - beg for urgently; make an earnest appeal
+- She implored her teammates to double-check the migration script before running it.
+- Family members implored the authorities to reopen the search.
+
+**imply** - express or indicate indirectly; signify
+- Are you implying that the earlier estimates were inaccurate?
+- A sudden drop in latency usually implies that traffic decreased or caching improved.
+
+**import** - bring in from another country
+- The country imports a large share of its electronics and precision machinery.
+- You can import JSON files directly into the analysis notebook.
+
+**impose** - demand; force; compel to behave in a certain way
+- The city imposed water restrictions during the severe summer drought.
+- I do not want to impose on your evening, so we can talk tomorrow.
+
+**impractical** - unwise to implement or maintain in practice; theoretical
+- Driving two hours each way every day proved impractical for the long term.
+- A complex manual setup is impractical for non-technical users.
+
+**impressive** - making a strong or vivid impression; producing a strong effect
+- She delivered an impressive demo that solved the bottleneck in real time.
+- The bridge spans a remarkably impressive gorge.
+
+**imprisonment** - confinement; putting someone in prison or in jail as lawful punishment
+- Serious financial fraud can carry penalties of heavy fines or imprisonment.
+- Years of wrongful imprisonment led to major legal reforms.
+
+**impulse** - act of applying force suddenly; an impelling force or strength
+- Try to pause for a day before acting on a shopping impulse.
+- A nerve impulse travels rapidly along sensory pathways to the brain.
+
+---
+
+### PAGE 85
+
+**inability** - lack of ability, especially mental ability, to do something
+- His inability to delegate tasks caused bottlenecks across the whole project.
+- The legacy system's inability to handle Unicode caused garbled text.
+
+**inaccessible** - unreachable; not available; unattainable
+- Heavy snow made the mountain trail completely inaccessible until spring.
+- Important documentation hidden in private chats becomes inaccessible to new hires.
+
+**inadequate** - not sufficient to meet a need; insufficient; poor
+- Current server memory is inadequate for handling peak traffic spikes.
+- Two hours of sleep proved completely inadequate before a full day of presentations.
+
+**inaugurate** - start; initiate; induct into office by formal ceremony
+- Officials gathered to inaugurate the new high-speed rail line.
+- The newly elected president will inaugurate the policy agenda next month.
+
+**incense** - enrage; infuriate; cause to be extremely angry
+- Repeatedly ignoring safety rules incensed the site supervisor.
+- Burning cedar incense gave the small room a calm, earthy scent.
+
+**incentive** - something, such as the fear of punishment or the expectation of reward
+- Offering a referral bonus created a strong incentive for team members to share openings.
+- Lower energy bills provide a practical incentive to insulate older homes.
+
+**incident** - usually minor event or condition that is subordinate to another; event; happening
+- The morning commute went smoothly with only one minor traffic incident.
+- Every security incident should be logged and reviewed afterward.
+
+**incidentally** - by chance; accidentally
+- Incidentally, I ran into your former colleague at the conference yesterday.
+- The tool was designed for logs, though it incidentally speeds up text search too.
+
+**inclination** - preference; tendency; inclined surface; slope
+- I have a strong inclination toward hands-on building rather than pure theory.
+- On a warm Sunday afternoon, few people feel an inclination to study.
+
+**incline** - cause to lean, slant, or slope; deviate from the horizontal or vertical
+- The garden path inclines gently toward the river bank.
+- Early results incline me to favor the simpler architecture.
+
+**inclined** - tending or leaning toward; bent; having preference or tendency
+- She is inclined to double-check numbers twice before publishing a report.
+- After a long week, I am more inclined to stay home and read.
+
+**inclusive** - tending to include all; taking a great deal or everything within its scope
+- The package price is all-inclusive, covering meals, transfers, and guided tours.
+- Good documentation uses clear, inclusive language that welcomes newcomers.
+
+**income** - gain from labor, business, property, or capital
+- Freelancing gave her a flexible secondary income alongside her main job.
+- Tracking monthly income and expenses makes budgeting far easier.
+
+**incompatible** - inharmonious; impossible to coexist; not easy to combine harmoniously
+- The old plugin is incompatible with the latest version of the runtime.
+- Their work schedules were completely incompatible for daily pair programming.
+
+**inconsistency** - state of being self-contradictory; lack of uniformity or steadiness
+- The script flagged an inconsistency between the invoice total and the line items.
+- Inconsistency in practice habits slows down language retention.
+
+**inconvenient** - not suited to your comfort, purpose or needs
+- A power cut at noon was highly inconvenient for everyone working from home.
+- Scheduling maintenance during peak hours is inconvenient for customers.
+
+**incorporate** - combine something into a larger whole; unite
+- The revised draft incorporates feedback from both reviewers.
+- They decided to incorporate their small consultancy as a formal company.
+
+**incredible** - unbelievable; beyond belief or understanding
+- The team pulled off an incredible comeback in the final five minutes.
+- It is incredible how fast storage capacities have grown over two decades.
+
+**incredulous** - difficult to believe; incredible; skeptical
+- He looked incredulous when told the repair would cost less than ten dollars.
+- Colleagues remained incredulous until they saw the benchmark numbers themselves.
+
+**increment** - process of increasing in number, size, quantity, or extent
+- Progress often happens in small increments rather than overnight leaps.
+- The counter increases by one increment every time a request succeeds.
+
+**incur** - bring upon oneself; become liable to; acquire or come into
+- Skipping routine maintenance can incur costly repairs later on.
+- International transfers may incur a small currency conversion fee.
+
+**indebted** - morally, socially, or legally obligated to another; under a legal obligation to someone
+- I am deeply indebted to my mentors for their patient guidance.
+- She felt indebted to her friend for covering her shift on short notice.
+
+**indefinite** - unclear; vague; lacking precise limits
+- The event was postponed for an indefinite period due to severe weather.
+- Leaving deadlines indefinite often causes tasks to drift.
+
+**indefinitely** - endlessly; incessantly; for a long time, no end defined; forever
+- You cannot delay testing indefinitely if you want a reliable release.
+- The session was paused indefinitely while engineers investigated the bug.
+
+**indent** - nick; set in from margin; impress or stamp
+- In Python, blocks of code are defined by how far they are indented.
+- Indent the first line of each new paragraph by half an inch.
+
+**independent** - not dependent; free; not subject to control by others; not relying on others
+- Running a local offline script makes your workflow independent of internet outages.
+- After graduating, she set up an independent design studio.
+
+**index** - anything which shows, indicates, manifests, or discloses; prologue indicating what follows; second digit
+- Check the index at the back of the book to locate specific topics quickly.
+- A vector index speeds up similarity searches across large document collections.
+
+---
+
+### PAGE 86
+
+**indicate** - point out; direct to a knowledge of
+- Test results indicate that the new filter removes most contaminants.
+- Flashing lights on the dashboard indicate a potential sensor issue.
+
+**indicative** - suggestive; implying; serving to indicate
+- A sudden drop in response times is often indicative of a network bottleneck.
+- His calm tone was indicative of thorough preparation.
+
+**indifference** - unconcern; disinterest; lack of enthusiasm
+- Public indifference toward the local vote surprised the organizers.
+- She met the criticism with calm indifference and kept building.
+
+**indifferent** - having no particular interest or concern; being neither good nor bad
+- The weather was indifferent—neither sunny enough for the beach nor stormy enough to stay indoors.
+- He seemed indifferent to the outcome of the office poll.
+
+**indigestion** - a disorder of digestive function; difficulty in digesting
+- Eating spicy food too quickly right before bed gave him mild indigestion.
+- Peppermint tea can help soothe occasional indigestion after a heavy meal.
+
+**indignant** - affected with indignation; wrathful; passionate; irate; feeling wrath by unworthy or unjust treatment
+- Residents were indignant when the park was closed without prior notice.
+- She sent an indignant reply after her suggestion was misquoted in the summary.
+
+**indignation** - anger aroused by something unjust
+- The unfair rule sparked widespread indignation among the students.
+- He spoke with quiet indignation about the wasted resources.
+
+**indispensable** - essential; requisite; impossible to be omitted or remitted
+- Reliable backups are indispensable when working on irreplaceable files.
+- Good communication is indispensable for distributed engineering teams.
+
+**individual** - single person or thing; human regarded as a unique personality
+- Each individual on the team brings a distinct set of strengths.
+- We reviewed every individual entry in the log before closing the ticket.
+
+**induce** - persuade; bring about; reason or establish by induction
+- Certain lighting conditions can induce eye strain during long reading sessions.
+- Nothing could induce him to share the confidential draft early.
+
+**inducement** - act of inducing, or the state of being induced; a motive or consideration that leads one to action or induces one to act
+- Free shipping served as a helpful inducement for first-time buyers.
+- Tax credits are sometimes offered as an inducement for green energy upgrades.
+
+**indulge** - be complacent toward; give way to; not to oppose or restrain; yield to the desire of
+- On Saturday nights, we like to indulge in homemade dessert and a movie.
+- Try not to indulge every distraction while you are on a focused sprint.
+
+**industrial** - of or relating to or resulting from industry; having highly developed industries
+- Heavy machinery hummed inside the old industrial warehouse.
+- The city shifted from heavy industrial manufacturing toward software and services.
+
+**industrialization** - development of industry on an extensive scale
+- Rapid industrialization transformed small farming towns into bustling urban centers.
+- Historians study how industrialization reshaped work and daily family life.
+
+**industrialized** - made industrial; converted to industrialism
+- Industrialized nations often face similar challenges in modernizing aging power grids.
+- The region became heavily industrialized during the twentieth century.
+
+**industrious** - diligent; hard-working; busy and laborious
+- The industrious intern finished the documentation ahead of schedule.
+- Industrious ants carried tiny crumbs back to the nest in a steady line.
+
+**inertia** - property of matter by which it tends when at rest to remain so, and when in motion to continue in motion, and in the same straight line or direction
+- Overcoming initial inertia is often the hardest part of starting a new habit.
+- In physics, inertia explains why passengers lurch forward when a car brakes suddenly.
+
+**inevitable** - unavoidable; incapable of being avoided or prevented
+- Minor edge-case bugs are almost inevitable in complex software systems.
+- Change is inevitable as tools and requirements evolve.
+
+**inevitably** - unavoidably; in a manner that is impossible to avoid or prevent
+- Rushing a release almost inevitably leads to regressions later.
+- As the season shifts, temperatures inevitably drop after sunset.
+
+**infant** - child in the first period of life; young babe
+- The clinic offers checkups and support for parents of newborn infants.
+- The project is still in its infant stages, with only a basic prototype working.
+
+**infantry** - body of children; a body of soldiers serving on foot; foot soldiers
+- Infantry units moved carefully through the wooded terrain ahead of the supply convoy.
+- Historical exhibits displayed uniforms worn by infantry soldiers in past campaigns.
+
+**infect** - bring into contact with a substance that can cause illness
+- A single unpatched machine can infect other devices on a shared network.
+- Unwashed hands can easily infect a small cut on your finger.
+
+**infection** - moral corruption or contamination; invasion of body which can lead to tissue damage and disease
+- Keeping a wound clean and covered helps prevent bacterial infection.
+- The doctor prescribed medication to clear up the sinus infection.
+
+**infectious** - contagious; contaminating
+- Her infectious enthusiasm lifted the mood of everyone in the room.
+- Certain viral illnesses are highly infectious in crowded spaces.
+
+**infer** - deduce; conclude from evidence or premises; lead to as a consequence or conclusion
+- From the timestamp gap, we can infer that the service restarted around midnight.
+- Readers can infer the character's motives from her actions rather than explicit words.
+
+---
+
+### PAGE 87
+
+**inference** - inferring by deduction or induction; truth or proposition drawn from another which is admitted or supposed to be true; conclusion; deduction
+- That inference makes sense given the logs, though we should verify it directly.
+- Drawing a fair inference requires separating facts from personal assumptions.
+
+**inferior** - poor; lower than a given reference point; low or lower in order, degree, or rank
+- Cheap cables often have inferior shielding and fail much sooner.
+- Never treat junior colleagues as if their ideas are inferior.
+
+**inferiority** - state of being lower than or not as good as
+- Imposter syndrome can create a false sense of inferiority even among capable engineers.
+- The test revealed no inferiority in accuracy compared to the baseline model.
+
+**infinite** - unlimited or boundless, in time or space; without limit in power, capacity, knowledge, or excellence
+- There seems to be an infinite number of small improvements you can make to a craft.
+- Space appears almost infinite when viewed through a clear telescope.
+
+**infinity** - unlimited extent of time, space, or quantity; eternity; boundlessness; immensity
+- Looking out over the calm ocean gave a fleeting sense of infinity.
+- Dividing by zero in standard arithmetic leads to undefined behavior or infinity.
+
+**inflation** - general increase in the prices of goods and services in a country
+- Rising inflation has made everyday groceries noticeably more expensive this year.
+- Central banks adjust interest rates to keep inflation near target levels.
+
+**inflict** - impose something unpleasant; cause
+- A sudden hailstorm inflicted heavy damage on the fruit orchards.
+- Avoid inflicting unnecessary complexity on users who just want a simple workflow.
+
+**influence** - power affecting person or thing; effect of one thing on another; flowing in or upon; influx
+- Good mentors have a lasting influence on how early-career engineers think.
+- Weather conditions can strongly influence daily energy demand.
+
+**influential** - important; powerful; having or exercising influence or power
+- Her open-source library became influential across the data science community.
+- He published an influential paper on distributed consensus algorithms.
+
+**influenza** - an acute febrile highly contagious viral disease
+- Getting a seasonal flu shot helps lower the risk of severe influenza.
+- He stayed home for a week to recover from influenza.
+
+**inform** - impart information to; make aware of something; be a pervasive presence in; animate
+- Please inform the team as soon as the deployment finishes.
+- Real user feedback should inform every major design revision.
+
+**informal** - absence of ceremony; casual
+- We held an informal chat over coffee instead of a formal status meeting.
+- T-shirts and sneakers are completely fine for our informal Friday sessions.
+
+**informative** - instructive; illustrative; providing or conveying information
+- The workshop was short, practical, and surprisingly informative.
+- She wrote an informative guide on setting up local development environments.
+
+**infringe** - act contrary to, as a law, right, or obligation; annul or hinder
+- Make sure third-party assets do not infringe on copyright or trademark rules.
+- New noise curfews were introduced so late events would not infringe on residents' rest.
+
+**ingenious** - clever; having inventive or cunning mind
+- She came up with an ingenious workaround using a simple local cache.
+- That ingenious folding mechanism fits inside a tiny pocket.
+
+**ingenuity** - quality or power of ready invention; quickness or acuteness in forming new combinations
+- Solving tight resource constraints often brings out real engineering ingenuity.
+- Human ingenuity turned rough stone and timber into lasting architecture.
+
+**inhabit** - live in; occupy; reside in
+- Diverse species of fish and coral inhabit the warm coastal waters.
+- Owls often inhabit hollow trees in quiet woodland areas.
+
+**inhabitant** - resident; someone or thing who lives in a place
+- Every inhabitant of the small island knew one another by name.
+- Local inhabitants warned hikers about shifting tides along the shore.
+
+**inherent** - firmly established by nature or habit
+- Every system design involves inherent trade-offs between speed and cost.
+- Empathy is an inherent strength in strong leaders.
+
+**inherit** - receive from an ancestor by legal succession or will; receive by bequest or as a legacy
+- The new subclass will inherit useful helper methods from its parent class.
+- She inherited her love of gardening from her grandmother.
+
+**initial** - early; preliminary; occurring at the beginning
+- Our initial test run succeeded on the very first try.
+- Put your initials on the top right corner of each page.
+
+**initially** - in the beginning; at first
+- Initially, the script ran slowly, but batching fixed the bottleneck.
+- The tool was initially built for internal use before going public.
+
+**initiate** - begin; originate; admit into membership
+- The team initiated a code review before merging the pull request.
+- She initiated a weekly study group to practice technical writing.
+
+**initiative** - serving to initiate; introductory step or movement; act which originates or begins
+- Taking the initiative to document unclear steps helps the whole team.
+- The city launched a green-energy initiative across public buildings.
+
+**inject** - put in; infuse; force or drive fluid into something
+- The nurse will inject a small dose of vaccine into the upper arm.
+- Injecting realistic sample data makes testing far more effective.
+
+**injure** - do harm to; inflict damage; do injustice to
+- Warm up properly so you do not injure a muscle during sprints.
+- Careless remarks can injure trust faster than people realize.
+
+**injury** - any physical damage to body caused by violence or accident or fracture
+- Wearing protective gear greatly reduces the risk of sports injuries.
+- Fortunately, the minor fender bender resulted in no injuries.
+
+---
+
+### PAGE 88
+
+**injustice** - unjust act; practice of being unjust or unfair
+- Advocating against workplace injustice takes courage and clear evidence.
+- History remembers those who spoke out against systemic injustice.
+
+**inland** - within the land; more or less remote from the ocean or from open water; interior
+- Temperatures are often more extreme inland than right along the coast.
+- The cargo train carried supplies far inland from the harbor.
+
+**innocent** - naive; lacking sense or awareness; free from evil or guilt
+- The court found the defendant innocent after new evidence came to light.
+- An innocent question sparked a lively debate about architecture choices.
+
+**innovate** - change or alter by bringing in something new
+- Small teams can often innovate faster because they have fewer approval layers.
+- The studio continues to innovate in interactive learning tools.
+
+**innovation** - introduction of something new
+- Practical innovation usually comes from solving real everyday friction.
+- That workflow innovation cut manual formatting time in half.
+
+**innumerable** - countless; numerous
+- Countless stars—innumerable to the naked eye—shone above the desert camp.
+- We solved innumerable small edge cases while polishing the release.
+
+**inquire** - ask a question; seek for truth or information by putting queries
+- Feel free to inquire about schedule flexibility during the interview.
+- Customer support inquired whether the issue happened on desktop or mobile.
+
+**inquiry** - investigation; search for knowledge
+- An internal inquiry was launched to understand why the alert was missed.
+- Thank you for your inquiry; we will respond within one business day.
+
+**insane** - exhibiting disordered of mind; deranged in mind; very foolish
+- Trying to rewrite the entire codebase in one weekend without tests is insane.
+- In classic psychology, legal definitions of being insane differ from clinical terms.
+
+**insert** - input; enter; put or set into, between, or among
+- Insert a USB flash drive into the port on the side of the laptop.
+- Remember to insert page numbers before exporting the final document.
+
+**insider** - an accepted member of a group; one who has special knowledge or access to confidential information
+- Only an insider would know why that legacy workaround was written years ago.
+- The newsletter shares insider tips from experienced conference speakers.
+
+**insight** - understanding; grasping the inner nature of things intuitively
+- Reviewing user sessions gave us valuable insight into where people get stuck.
+- Her fresh insight simplified a tangled problem immediately.
+
+**insignificant** - not large enough to consider or notice; lacking in importance; trivial
+- A one-percent difference on a tiny dataset can be statistically insignificant.
+- Do not let insignificant details derail the main objective.
+
+**insist** - stand or rest; find support; take a stand and refuse to give way; be persistent
+- The lead engineer insisted on writing automated tests before shipping.
+- Please do not insist on paying—dinner is on me tonight.
+
+**insolvent** - bankrupt; unable to repay one's debts
+- Poor cash-flow management pushed the small retailer toward becoming insolvent.
+- The company filed for restructuring after becoming technically insolvent.
+
+**inspect** - look over; examine carefully and critically, especially for flaws
+- Always inspect downloaded scripts before running them on your machine.
+- A building inspector checked the wiring and plumbing before approval.
+
+**inspection** - formal or official examination
+- The vehicle passed its safety inspection with no issues found.
+- Regular inspection of equipment prevents unexpected breakdowns.
+
+**inspector** - high ranking police officer; investigator who observes carefully
+- The health inspector praised the kitchen's clean storage areas.
+- A senior inspector reviewed the incident report carefully.
+
+**inspiration** - sudden intuition as part of solving a problem; arousing to a particular emotion or action
+- A quiet walk in nature often sparks fresh inspiration for writing.
+- Her determination became a source of inspiration for the whole study group.
+
+**inspire** - encourage; inspirit; fire the imagination of
+- Great teachers inspire curiosity rather than just demanding memorization.
+- The documentary inspired many viewers to start volunteering locally.
+
+**install** - set up; connect or set in position and prepare for use
+- Run the installer to set up the package manager on your system.
+- Technicians arrived in the morning to install the new router.
+
+**installation** - act of installing or giving possession of an office, rank, or order, with the usual rites or ceremonies; the whole of a system of machines, apparatus, and accessories
+- Follow the installation guide step by step to avoid path errors.
+- The gallery hosted a large light installation in the main hall.
+
+**installment** - monthly payment; a part of a published serial
+- They paid for the camera in six interest-free monthly installments.
+- I cannot wait for the next installment of that historical series.
+
+**instance** - example that is cited to prove a contention or illustrate a point; case or occurrence
+- For instance, caching repeated queries can cut response time dramatically.
+- There was not a single instance of data loss during the migration.
+
+**instinct** - inborn pattern of behavior; nature
+- Her instinct told her to double-check the backup before deleting anything.
+- Birds follow seasonal instinct when migrating south for winter.
+
+**instinctive** - unthinking; prompted by instinct; spontaneous
+- Raising a hand to shield your face from a flying ball is an instinctive reaction.
+- Good UI feels instinctive enough that users rarely need a tutorial.
+
+---
+
+### PAGE 89
+
+**institute** - advance or set forth in court; association organized to promote art or science or education
+- She joined a research institute focused on sustainable agriculture.
+- The school decided to institute a quiet study hour every evening.
+
+**institution** - institute; organization; introducing something new
+- Libraries are vital educational institutions in every community.
+- Respecting clear norms helps turn a good habit into a lasting institution.
+
+**instruct** - teach; make aware of
+- Clear prompts instruct the model on exact formatting and constraints.
+- The guide instructs beginners on building their first command-line tool.
+
+**instruction** - direction; teaching; activities of educating or instructing
+- Read the setup instructions carefully before connecting the hardware.
+- She offers one-on-one guitar instruction on weekends.
+
+**instructive** - serving to instruct of enlighten or inform; enlightening
+- Comparing the failed run with the passing one was very instructive.
+- Even small side projects can be deeply instructive when you debug them thoroughly.
+
+**instrument** - tool; one used by another to accomplish a purpose; device used to produce music; legal document
+- Precision instruments are essential for calibrating sensitive lab sensors.
+- He has played classical violin as his primary instrument for ten years.
+
+**instrumental** - serving or acting as a means or aid; helpful; relating to musical instruments
+- Her early mentorship was instrumental in helping me land my first role.
+- They played instrumental jazz music softly during the dinner gathering.
+
+**insufficient** - of a quantity not able to fulfill a need or requirement
+- Insufficient test coverage allowed a subtle edge-case bug to slip through.
+- The sample size was too insufficient to draw broad conclusions.
+
+**insulate** - make an island of; place in a detached situation, or in a state having no communication with surrounding objects; isolate; separate
+- Thick curtains and weatherstripping help insulate a room against drafts.
+- Rubber coatings insulate electrical wires to prevent shocks.
+
+**insulation** - act of insulating; separation; state of being detached, from other objects
+- Upgrading attic insulation reduced heating costs noticeably last winter.
+- Proper thermal insulation keeps cold drinks chilled for hours.
+
+**insult** - offend; affront; treat, mention, or speak to rudely
+- Dismissing someone's hard work without reading it feels like an insult.
+- No one meant to insult anyone with that phrasing in the draft.
+
+**insurance** - protection against future loss; act, business, or system of insuring
+- Travel insurance can save you stress if flights are delayed or canceled.
+- Regular backups act as practical insurance against hardware failure.
+
+**insure** - make sure or secure, specifically against loss by a contingent event; give or take insurance on
+- Checking inputs carefully helps insure that downstream pipelines stay clean.
+- They insured their equipment against theft and accidental damage.
+
+**intangible** - not able to be perceived by senses, as touch; vague
+- Trust and team morale are intangible assets that drive long-term output.
+- Software products often feel more intangible to buyers than physical goods.
+
+**integral** - essential or necessary for completeness; entire
+- Version control is an integral part of modern software development.
+- Clean data preparation is integral to getting reliable model results.
+
+**integrate** - make whole; combine; make into one unit
+- We need to integrate the new payment module into the existing checkout flow.
+- Daily review helps integrate fresh vocabulary into active speech.
+
+**integrity** - quality or condition of being whole or undivided; completeness
+- Checksums verify file integrity after transferring large archives.
+- Scientific integrity requires reporting negative results honestly alongside successes.
+
+**intellect** - ability to learn and reason; ability to think abstractly or profoundly
+- Solving complex systems problems exercises both logic and intellect.
+- Her sharp intellect stood out during the technical discussion.
+
+**intellectual** - of intellect; showing intellect; requiring the use of the mind, rather than emotions or instinct
+- Reading dense research papers is a rewarding intellectual challenge.
+- They enjoy lively intellectual debates over coffee.
+
+**intelligence** - ability to comprehend; understand and profit from experience; intellect; power of cognition
+- Emotional intelligence helps teams navigate disagreements constructively.
+- Gathering accurate intelligence before acting reduces avoidable risks.
+
+**intelligent** - ingenious; wise; bright; having a high degree of intelligence; mentally acute
+- Writing clean, readable code is an intelligent investment for future you.
+- That was an intelligent question that uncovered a hidden assumption.
+
+**intense** - extreme; acute; in an extreme degree
+- The team went through an intense sprint ahead of the conference demo.
+- Intense sunlight reflected off the white sand along the shore.
+
+**intensive** - thorough; concentrated; tending to give force or emphasis
+- She completed an intensive two-week workshop on distributed systems.
+- Intensive farming methods aim to maximize yield per acre.
+
+**intent** - something that is intended; aim or purpose
+- Always read the intent behind a message rather than reacting to tone alone.
+- He walked into the kitchen with the clear intent of making tea.
+
+**intention** - motive; with respect to marriage; aim that guides action
+- My intention is to keep the script simple, modular, and easy to maintain.
+- Good intentions still need clear execution to deliver results.
+
+---
+
+### PAGE 90
+
+**interact** - interplay; act together or towards others or with
+- Users interact with the application through a clean web interface.
+- Different components interact in unexpected ways under heavy load.
+
+**interaction** - communication; a mutual or reciprocal action; interacting
+- Direct interaction with users reveals pain points you never notice alone.
+- Every interaction between the client and server adds a small delay.
+
+**interest** - attention; curiosity; dividend; yield
+- Compound interest helps long-term savings grow faster over time.
+- She has a strong interest in linguistics and historical manuscripts.
+
+**interfere** - disrupt; hinder; be or create a hindrance or obstacle
+- Background noise can interfere with accurate speech transcription.
+- Try not to interfere while someone is working through a tough problem.
+
+**interference** - obstruction; prevention; act or an instance of hindering, obstructing, or impeding
+- Radio interference caused static on the walkie-talkie channel.
+- Unnecessary interference slowed down the small autonomous team.
+
+**interior** - inside; inner part; internal; inner
+- The interior of the old stone cottage was cozy and brightly lit.
+- Interior design choices can make a narrow room feel more open.
+
+**intermediate** - middle; lying between two extremes
+- This course is aimed at intermediate learners who already know the basics.
+- Save an intermediate checkpoint before running a long training loop.
+
+**internal** - inside; interior; located within the limits or surface
+- We fixed an internal routing bug that affected logged-in users.
+- Internal documentation helps new contributors get up to speed quickly.
+
+**interpret** - explain or tell the meaning of; translate orally; decipher
+- Different analysts may interpret the same chart in slightly different ways.
+- She offered to interpret the conversation during the international meeting.
+
+**interpretation** - explanation; performer's distinctive personal version of a song, dance, piece of music
+- That data point is open to more than one interpretation.
+- The pianist gave a fresh, expressive interpretation of the classic piece.
+
+**interrupt** - terminate; make a break in
+- Sorry to interrupt, but there is a quick update on the deployment.
+- A sudden power flicker interrupted our video call.
+
+**interval** - pause; break; space between two objects, points, or units
+- The script polls the status endpoint at a five-second interval.
+- We took a short ten-minute interval between the two sessions.
+
+**intervene** - get involved; come, appear, or lie between two things
+- Managers should intervene early if a project falls noticeably behind schedule.
+- Heavy rain intervened just as we finished setting up the outdoor tent.
+
+**intimate** - give to understand; imply as a possibility; make known subtly and indirectly
+- He intimated during the call that a schedule change might be coming.
+- They share an intimate friendship built over a decade of collaboration.
+
+**intrude** - trespass; enter as an uninvited person
+- I do not want to intrude on your family dinner tonight.
+- Unwanted notifications constantly intrude on deep work blocks.
+
+**inundate** - overwhelm; cover with water, especially floodwaters
+- Support teams were inundated with questions right after the announcement.
+- Heavy monsoon rains inundated low-lying fields along the river.
+
+**invade** - move into; intrude; enter by force in order to conquer or pillage
+- Weeds quickly invade bare soil if you do not add mulch.
+- Historical armies marched across mountain passes to invade neighboring lands.
+
+**invader** - one who invades; assailant; encroacher; intruder
+- Tree bark acts as a natural barrier against insects and other invaders.
+- In the story, clever villagers outsmarted the invaders using local terrain.
+
+**invalid** - of no force or weight; not valid; weak; void; null
+- An expired token makes the API request invalid.
+- That argument becomes invalid once you check the actual timestamps.
+
+**invalidate** - make invalid; nullify; destroy
+- Changing the input schema can invalidate older saved configurations.
+- One flawed assumption can invalidate an entire calculation.
+
+**invaluable** - valuable under estimation; inestimable; priceless
+- Clear error messages are invaluable when debugging production issues.
+- Her notes on the codebase proved invaluable to the whole team.
+
+**invariably** - constantly; always
+- Rushing right before a deadline invariably creates extra stress.
+- Morning walks invariably clear my head before a busy workday.
+
+**invasion** - raid; attack; act of invading, especially the entrance of an armed force into a territory to conquer
+- Screens help keep insects from staging a summer invasion in the kitchen.
+- Historians analyzed the logistics behind the ancient coastal invasion.
+
+**inverse** - opposite; reversed in order, nature, or effect; turned upside down
+- In many systems, simplicity and over-engineering stand in inverse relation to cost.
+- Division is the inverse operation of multiplication.
+
+**invest** - put clothe on, as with office or authority; place in possession of rank, dignity, or estate; endow; lay out money or capital in business
+- Investing time in good tooling pays off repeatedly over months.
+- They decided to invest part of their profits into renewable energy.
+
+**investigate** - explore; observe or inquire into in detail; examine systematically
+- Engineers are investigating why memory usage climbs after twelve hours.
+- The committee was formed to investigate the supply chain delay.
+
+**investigation** - detailed inquiry or systematic examination; inquiry
+- A thorough investigation revealed a misconfigured environment variable.
+- The investigation took three weeks and produced clear recommendations.
+
+---
+
+### PAGE 91
+
+**invisible** - incapable of being seen; impossible or nearly impossible to see
+- Background daemons run quietly, often invisible to everyday users.
+- Air pollution is sometimes invisible, yet still affects air quality.
+
+**invoice** - bill; commercial document issued by seller to buyer indicating the products, quantities and prices
+- Remember to attach the itemized invoice before submitting the payment request.
+- Each invoice includes a unique reference number and due date.
+
+**involve** - wind round; connect with something; include necessarily; engage thoroughly
+- Migrating the database will involve careful planning and a brief maintenance window.
+- Good system design involves balancing latency, cost, and maintainability.
+
+**irony** - expression by deliberate contrast between apparent and intended meaning; witty language used to insult
+- There is a bit of irony in a productivity expert missing their own deadline.
+- Dramatic irony works best when the audience knows something the characters do not.
+
+**irregular** - contrary to rule or accepted order or general practice; inconstant
+- Irregular sleep hours make it harder to stay focused during the day.
+- The stones along the garden path were cut in irregular shapes.
+
+**irresistible** - overwhelming; tempting; charming
+- The smell of fresh cinnamon rolls from the bakery was irresistible.
+- She made an irresistible offer that solved both sides' problems.
+
+**irrespective** - without regard for conditions, circumstances, or consequences; unbiased; independent
+- Every user gets access to core safety features irrespective of plan tier.
+- Irrespective of weather, the delivery route runs six days a week.
+
+**irrevocable** - unalterable; irreversible; impossible to retract or revoke
+- Deleting those backups permanently is an irrevocable action, so confirm twice.
+- Once published on a public ledger, that record becomes effectively irrevocable.
+
+**irrigate** - supply land with water artificially; clean a wound with a fluid
+- Drip systems irrigate crops efficiently while conserving water in dry regions.
+- Farmers irrigated the terraced fields early in the morning to reduce evaporation.
+
+**irrigation** - supplying water to the land to help crops grow
+- Modern irrigation methods help farmers grow crops in arid climates.
+- Canal irrigation has supported agriculture along river valleys for millennia.
+
+**irritate** - rouse to impatience or anger; annoy; provoke
+- Dust and dry air can irritate your eyes and throat.
+- Repetitive notification chimes can easily irritate someone trying to concentrate.
+
+**isolate** - seclude; set apart or cut off from others
+- Isolate the failing microservice so you can test it without side effects.
+- Heavy storms can isolate remote mountain villages for days.
+
+**isolation** - separation; detachment; quality or condition of being isolated
+- Working in total isolation can make it harder to spot blind spots.
+- Social isolation can take a toll on mental well-being over time.
+
+**issue** - subject; topic; problem; edition; publication; release; publish
+- Let us address the performance issue before adding new features.
+- The latest issue of the journal features three papers on robotics.
+
+**item** - a whole individual unit; a distinct part that can be specified separately in a group
+- Check off each item on the list as you pack your bag.
+- That security item is top priority for the next sprint.
+
+**ivory** - teeth of elephant
+- Antique chess pieces were sometimes carved from ivory or boxwood.
+- She painted the study walls a warm ivory shade.
+
+---
+
+### PAGE 92 (J)
+
+**jail** - building for confinement of persons held in lawful custody
+- The local jail stands near the courthouse in the center of town.
+- In the board game, landing on that square sends your token straight to jail.
+
+**jam** - crush or bruise; get stuck; press tightly together
+- Paper got jammed inside the printer right before we printed the handouts.
+- We made strawberry jam from fresh fruit picked at the farm.
+
+**jar** - pitcher; vase; small, cylindrical container for food, normally made of glass or clay
+- She stored homemade honey in a clean glass jar on the pantry shelf.
+- A sudden bump on the rough road gave the passengers a sharp jar.
+
+**jealous** - resentful or bitter in rivalry; envious
+- Try not to feel jealous when a teammate gets a lucky break.
+- He was fiercely jealous of his quiet reading time on Sunday mornings.
+
+**jealousy** - envy; jealous attitude or disposition
+- Open communication helps prevent jealousy and misunderstandings in teams.
+- Jealousy rarely motivates anyone in a healthy, constructive way.
+
+**jelly** - substance having the consistency of semi-solid foods
+- He spread grape jelly on warm toast for a quick breakfast.
+- The dessert set into a firm fruit jelly after two hours in the fridge.
+
+**jeopardize** - endanger; imperil; put at risk
+- Skipping code reviews can jeopardize stability in production.
+- Reckless shortcuts might jeopardize the entire project timeline.
+
+**jerk** - pull, or move with a sudden movement; move with abrupt, seemingly uncontrolled motions
+- The train gave a sudden jerk as it began moving from the platform.
+- He jerked his hand back when he touched the hot pan.
+
+**jettison** - throw overboard; eject from boat, submarine, aircraft, or spaceship
+- The spacecraft had to jettison empty fuel stages during ascent.
+- When scope grows too wide, teams sometimes jettison low-value features to ship on time.
+
+**jewel** - gemstone; costly ornament of precious metal or gem
+- A sparkling emerald jewel sat at the center of the antique ring.
+- That coastal town is a true jewel of the region.
+
+**jewelry** - adornment made of precious metals, as a bracelet or ring or necklace
+- She keeps her silver jewelry in a lined box on the dresser.
+- The artisan crafted handmade jewelry from recycled brass and stones.
+
+**jog** - run or ride at a steady slow trot; give a push or shake to
+- I like to jog along the waterfront path before starting work.
+- Reviewing the notes helped jog my memory before the meeting.
+
+**journal** - magazine; periodical; log; diary; a ledger in which transactions have been recorded as they occurred
+- Keep a daily engineering journal to track experiments, bugs, and decisions.
+- Her study was accepted into a peer-reviewed academic journal.
+
+**journalism** - profession of reporting or photographing or editing news stories for one of the media
+- Investigative journalism plays a vital role in holding institutions accountable.
+- She studied journalism and media ethics at university.
+
+**journalist** - writer for newspapers and magazines
+- The journalist interviewed local residents to get an accurate picture of the flood.
+- Good journalists verify facts from multiple reliable sources before publishing.
+
+**judgement** - decision; appraisal
+- Trust your judgement when a rushed plan feels risky or incomplete.
+- The committee will issue its judgement after reviewing all submissions.
+
+**juice** - liquid; liquid part that can be extracted from plant or animal tissue
+- Squeeze fresh orange juice in the morning for a bright vitamin boost.
+- Juicing apples and carrots makes a sweet, colorful drink.
+
+**juicy** - full of juice; lucrative; richly interesting
+- Bite into a juicy peach on a hot summer day.
+- The reporter uncovered a juicy story about the upcoming merger.
+
+**jumble** - assemble without order or sense; confused multitude of things; chaos; mess; mixture
+- Old cables and adapters were tangled in a jumble inside the drawer.
+- Notes from three different classes got jumbled together in my bag.
+
+**junction** - connection; joint; intersection; crossing
+- Turn left at the highway junction to head toward the mountains.
+- The new sensor sits at a key junction in the pipeline.
+
+**jungle** - land densely overgrown with tropical vegetation; dense, confused mass
+- Dense vines and ferns cover the humid jungle floor.
+- Unorganized folders quickly turn into a digital jungle without naming rules.
+
+**junior** - less advanced in age than another; younger; lower in standing or in rank
+- The junior developer paired with a senior engineer to learn the codebase.
+- He is two years junior to his sister but taller than her.
+
+**jury** - committee appointed to judge a case
+- The jury listened carefully to every witness before reaching a verdict.
+- A panel of judges—rather than a jury—decided the design competition.
+---
