@@ -11494,3 +11494,1067 @@ Fresh water flowed from a natural fountain in the hills.
 - The jury listened carefully to every witness before reaching a verdict.
 - A panel of judges—rather than a jury—decided the design competition.
 ---
+
+### PAGE 93
+
+**justice** - quality of being just; practical conformity to human or divine law; equity; uprightness
+- Citizens marched peacefully to demand equal justice under the law.
+- The judge's fair ruling served justice for everyone involved in the dispute.
+
+**justifiable** - capable of being justified, or shown to be just
+- Canceling the outdoor event was completely justifiable given the severe lightning warnings.
+- Spending extra time on automated testing is justifiable when reliability is critical.
+
+**justification** - good or just reason; condition or fact of being justified
+- There is no valid justification for skipping safety inspections on heavy machinery.
+- He provided clear data as justification for increasing the quarterly budget.
+
+**justify** - adjust the spaces between words; show to be reasonable; explain, clear away
+- Can you justify why the new architecture requires twice as much server memory?
+- In word processors, full justification aligns text evenly along both left and right margins.
+
+**juvenile** - youth; adolescent; not fully grown or developed
+- Making prank calls at midnight struck everyone as rather juvenile behavior.
+- The wildlife center rehabilitates injured juvenile hawks before releasing them.
+
+---
+
+### PAGE 94 (K)
+
+**kangaroo** - animal that having large powerful hind legs and a long thick tail
+- A red kangaroo bounded effortlessly across the Australian outback.
+- Mother kangaroos carry and nurse their tiny young inside a front pouch.
+
+**keen** - acute; incisive; sharp; express grief verbally
+- Dogs have a remarkably keen sense of smell that helps them track faint scents.
+- She has a keen eye for spotting subtle layout flaws in user interfaces.
+
+**kernel** - central or vital part; most material and central part; grain or seed as of corn
+- A tiny kernel of truth often lies at the heart of the best fiction.
+- The operating system kernel manages hardware resources and memory allocation.
+
+**kerosene** - flammable hydrocarbon oil used as fuel in lamps and heaters
+- Campers filled the vintage lantern with kerosene before nightfall.
+- Store kerosene in a well-ventilated shed away from open flames.
+
+**keyboard** - device consisting of a set of keys on a piano or organ or typewriter or typesetting machine or computer
+- A mechanical keyboard with tactile switches makes long coding sessions more comfortable.
+- She practiced scales on the electronic keyboard every afternoon.
+
+**kidnap** - take by force or fear, and against one's will; seize and detain unlawfully and usually for ransom
+- Detectives worked around the clock to rescue the executive after criminals tried to kidnap him.
+- In the adventure novel, pirates kidnap the royal messenger on the high seas.
+
+**kidney** - glandular organ which excretes urea and other waste products from the animal body
+- Drinking plenty of water helps support healthy kidney function.
+- Surgeons performed a successful kidney transplant at the university hospital.
+
+**kindle** - build or fuel a fire; cause to glow; light up; inspire
+- Dry pine needles and small twigs make it easy to kindle a campfire.
+- That science documentary helped kindle her lifelong passion for astronomy.
+
+**kingdom** - rank, quality, state, or attributes of a king; royal authority; sovereign power; rule; dominion; monarchy
+- Biologists classify living organisms into major groups such as the plant and animal kingdoms.
+- The ancient fortress once guarded the northern border of the kingdom.
+
+**kneel** - bend the knee; fall or rest on the knees
+- Gardeners often use a foam pad when they kneel on damp soil to plant seedlings.
+- Photographers knelt down to capture the monument from a dramatic low angle.
+
+**knit** - contract into wrinkles; grow together; form into fabric by intertwining
+- My grandmother loves to knit warm wool scarves during the winter months.
+- Shared challenges helped knit the small engineering team tightly together.
+
+**knob** - hard protuberance; hard swelling or rising; bunch; lump
+- Turn the brass door knob slowly so you do not wake anyone inside.
+- Adjust the volume knob on the amplifier until the sound is clear.
+
+**knot** - fastening together of one or more threads, cords, ropes; lump or loop formed in thread; ornamental tie
+- Sailors learn how to tie a secure bowline knot that will not slip under tension.
+- My shoelace got tangled in a tight knot after running through the wet grass.
+
+---
+
+### PAGE 95 (L)
+
+**label** - paper affixed to anything by inscription; slip of ribbon, parchment; writing annexed by way of addition
+- Always read the ingredient label carefully if you have food allergies.
+- Clear folder labels make finding archived project files much faster.
+
+**laborer** - worker; someone who works with their hands
+- Skilled laborers laid the stone foundation for the new community center.
+- Farm laborers worked from dawn to harvest the ripe orchard fruit.
+
+**lace** - delicate decorative fabric woven in an open web of symmetrical patterns; rope; cord that is drawn through eyelets
+- Stop for a second to tie your loose shoelace before you trip.
+- The antique tablecloth was edged with intricate handmade lace.
+
+**lag** - delay; drag; the act of slowing down or falling behind
+- High network latency caused noticeable video lag during the live stream.
+- Older devices tend to lag behind when running modern graphics-heavy apps.
+
+**lamb** - the young of the sheep; simple, unsophisticated person
+- A newborn lamb stayed close beside its mother in the spring pasture.
+- They slow-roasted seasoned lamb with rosemary and garlic for dinner.
+
+**lame** - moving with pain or difficulty because of injury; disabled so that movement is difficult or impossible
+- The horse went slightly lame after stepping on a sharp stone along the trail.
+- Giving a lame excuse for missing a deadline rarely convinces anyone.
+
+**landing** - touchdown; act of coming down to the earth
+- Passengers applauded after the pilot made a smooth landing in crosswinds.
+- Leave the boxes on the staircase landing until we clear space upstairs.
+
+**landscape** - scenery; expanse of scenery that can be seen in a single view
+- Snow-covered peaks and pine valleys created a breathtaking winter landscape.
+- Artificial intelligence is rapidly reshaping the modern software landscape.
+
+**lane** - passageway between fences which is not traveled as a highroad; narrow country road
+- A narrow country lane wound between stone walls and blooming hedgerows.
+- Keep in the right lane unless you are actively passing slower traffic.
+
+**lap** - take in food or drink with one's tongue; splash gently
+- The thirsty dog leaned over the bowl to lap up fresh water.
+- Small waves lapped gently against the wooden hull of the anchored boat.
+
+**lapse** - gliding, slipping, or gradual falling; unobserved or imperceptible progress; slip or error; failing in duty
+- A brief lapse in concentration caused a typo in the configuration file.
+- Do not let your software license lapse before renewing the subscription.
+
+**largely** - in a large manner; for the most part; mainly
+- The success of the migration was largely due to thorough pre-launch testing.
+- Coastal weather in this region is largely mild throughout the year.
+
+**lark** - any of various small, singing passerine birds of the family Alaudidae; one who wakes early; one who is up with the larks
+- A meadow lark sang cheerfully from the fence post at sunrise.
+- Being an early lark, she finishes half her daily work before nine o'clock.
+
+**laser** - optical device that produces an intense monochromatic beam of coherent light
+- Engineers used a laser level to align the shelves perfectly along the wall.
+- Modern barcode scanners rely on a low-power laser beam to read labels quickly.
+
+**lasting** - continuing or remaining for a long time; enduring; durable
+- Good mentorship leaves a lasting impact on how engineers solve problems.
+- They built a lasting partnership rooted in trust and transparent communication.
+
+**latent** - present or potential but not evident or active; dormant; hidden
+- Stress testing helps uncover latent bugs that never appear under light loads.
+- Every student possesses latent talents waiting for the right environment to grow.
+
+**lateral** - coming from side; situated at or extending to the side
+- Lateral thinking helps you find creative solutions outside standard routines.
+- The quarterback threw a quick lateral pass toward the sideline.
+
+**latitude** - freedom from normal restraints; angular distance north or south of the earth's equator
+- Cities near the equator sit at low latitude and experience warm weather year-round.
+- The manager gave the design team wide latitude to experiment with new layouts.
+
+**launch** - begin; originate; initiate; send off; take off
+- The team plans to launch the updated mobile app next Tuesday morning.
+- Spectators gathered near the coast to watch the rocket launch into orbit.
+
+**laundry** - washing; workplace where clothes are washed and ironed
+- Sunday afternoon is when I usually wash and fold my weekly laundry.
+- Separate dark fabrics from white shirts before starting a load of laundry.
+
+---
+
+### PAGE 96
+
+**lawn** - landscape; grassland, usually tended or mowed; meadow
+- Freshly mowed grass gave the front lawn a neat, welcoming appearance.
+- Children played badminton on the sunny backyard lawn until dusk.
+
+**lay** - put into a certain place; cause to lie down; spread over a surface
+- Please lay the blueprints flat on the conference table so everyone can see them.
+- Masons worked steadily to lay bricks along the garden wall.
+
+**layer** - tier; a relatively thin sheet like expanse or region lying over or under another
+- Adding a caching layer drastically reduced database query load.
+- Wear an extra wool layer if you plan to hike after sunset.
+
+**layout** - overall design of a page; plan or design of something that is laid out
+- A clean, intuitive layout makes documentation much easier to scan.
+- We rearranged the office layout to bring collaborative teams closer together.
+
+**leadership** - guidance; direction; authority; position or office of a leader
+- Calm leadership during an outage keeps the engineering team focused on recovery.
+- Strong leadership means empowering others rather than micromanaging every step.
+
+**leading** - chief; principal; having a position in the lead; foremost
+- She is a leading researcher in renewable energy storage systems.
+- Poor documentation is a leading cause of onboarding delays.
+
+**leaflet** - small leaf; leaf like organ or part
+- Volunteers handed out an informational leaflet about local recycling schedules.
+- Each compound leaf on the fern consists of dozens of tiny green leaflets.
+
+**league** - association; union
+- Sixteen local clubs compete in the regional youth soccer league.
+- Her thoughtful analysis put her in a league of her own during the debate.
+
+**leak** - escape fluid from container through a hole or crack; tell anonymously; reveal
+- Call a plumber right away if you notice a slow leak under the kitchen sink.
+- A memory leak caused the background service to crash after twenty-four hours.
+
+**lean** - bend or slant away from the vertical; rely for assistance or support
+- Do not lean your bicycle against the freshly painted wall.
+- Keep your codebase lean by removing unused dependencies regularly.
+
+**leap** - jump; hop; place jumped over or from
+- The cat made an effortless leap from the floor onto the top bookshelf.
+- Moving from prototype to production represents a major leap forward.
+
+**lease** - rent; charter; engage for service under a term of contract
+- Read every clause carefully before signing a two-year apartment lease.
+- Many startups prefer to lease cloud servers rather than buy physical hardware.
+
+**lecture** - teaching by giving a discourse on some subject; speech that is open to the public
+- The visiting professor gave a fascinating lecture on ancient Mediterranean trade.
+- Students took detailed notes during the introductory algorithms lecture.
+
+**legal** - created by, permitted by law; according to the law of works
+- Consult a legal advisor before finalizing international licensing contracts.
+- Downloading open-source software under an MIT license is completely legal.
+
+**legend** - explanatory list of symbols on a map; unverified story handed down from earlier times
+- Check the map legend to see what the dashed red lines represent.
+- Local legend claims a hidden tunnel runs beneath the old castle.
+
+**legendary** - mythical; fabled; extremely well known; famous or renowned
+- Her patience when debugging tricky legacy systems is legendary on the team.
+- Travelers visited the ruins made famous by legendary ancient epics.
+
+**legislation** - lawmaking; the act of making or enacting laws; law enacted by a legislative body
+- Parliament passed new legislation strengthening consumer data privacy protections.
+- Drafting clear legislation requires balancing public safety with individual rights.
+
+**legitimate** - accordant with law; lawful; based on logical reasoning; reasonable
+- Raising concerns about server downtime is a completely legitimate point.
+- Verify that the website is legitimate before entering any payment details.
+
+**leisure** - convenience; vacancy; freedom to choose a pastime or enjoyable activity
+- Read through the reference guide at your leisure over the weekend.
+- Having uninterrupted leisure time helps prevent creative burnout.
+
+**lengthen** - extend; make or become longer
+- Notice how the days gradually lengthen as spring approaches.
+- We decided to lengthen the testing phase by three days to cover edge cases.
+
+**leopard** - large feline of African and Asian forests usually having a tawny coat with black spots
+- A spotted leopard rested quietly along a thick branch high in the acacia tree.
+- Leopards are solitary, agile climbers capable of carrying heavy prey into trees.
+
+**lever** - bar, applied to a rotator piece to turn it
+- Pull the metal lever forward to engage the hydraulic lift.
+- Automation is a powerful lever for scaling small engineering teams.
+
+**levy** - impose fine or tax; collect payment
+- The municipality voted to levy a small fee to fund park maintenance.
+- Banks may levy an overdraft charge if an account balance drops below zero.
+
+**liability** - something that holds one back; state of being legally obliged and responsible
+- Unmaintained legacy code quickly turns from an asset into a technical liability.
+- Business owners carry liability insurance to protect against unforeseen claims.
+
+**liable** - bound or obliged in law or equity
+- Drivers who ignore red lights are legally liable for any resulting damage.
+- Without regular backups, you are liable to lose months of work if a drive fails.
+
+**liberal** - open-minded; tolerant; broad-mindedness; having political views favoring reform and progress
+- The chef added a liberal sprinkle of fresh herbs over the roasted vegetables.
+- A liberal arts education encourages critical thinking across multiple disciplines.
+
+**liberate** - set free, as from oppression, confinement, or foreign control; discharge; release
+- Automating repetitive reports helped liberate three hours a week for deep research.
+- The treaty helped liberate prisoners of war on both sides.
+
+---
+
+### PAGE 97
+
+**liberty** - state of free person; exemption from subjection to the will of another; freedom
+- Freedom of speech and assembly are core pillars of civil liberty.
+- I took the liberty of organizing the shared folder by date and topic.
+
+**license** - official or legal permission to do or own a specified thing
+- You need a valid driver's license before renting a car at the airport.
+- Check the open-source license terms before bundling a library into commercial software.
+
+**lick** - draw or pass the tongue over; pass or lap quickly and rapidly; beat thoroughly in a competition or fight
+- Flames began to lick the edges of the dry logs inside the fireplace.
+- The excited puppy tried to lick everyone's face at the front door.
+
+**lift** - direct or carry from a lower to a higher position; raise; transport by air
+- Bend your knees rather than your back when you lift heavy boxes.
+- Morning fog began to lift as the sun warmed the valley.
+
+**light** - brightness; something that admits illumination; source of fire; particular aspect of a situation
+- Open the blinds to let natural morning light brighten the workspace.
+- Viewed in that light, delaying the release was the smartest choice.
+
+**likelihood** - possibility, strong probability
+- Wearing a seatbelt greatly reduces the likelihood of serious injury.
+- Given the clear forecast, there is little likelihood of rain today.
+
+**likewise** - similarly; as well; too
+- She thanked him for the feedback, and he replied, "Likewise, I learned a lot."
+- Keep input validation strict; likewise, sanitize all outputs before rendering.
+
+**limb** - arm; leg; any of the main branches arising from the trunk or a bough of a tree
+- Heavy wet snow snapped a thick limb off the old maple tree.
+- Stretching every limb after sitting at a desk improves circulation.
+
+**limestone** - rock consisting chiefly of calcium carbonate or carbonate of lime
+- Many historic monuments and cathedrals were built from pale carved limestone.
+- Rainwater slowly dissolves underground limestone to form vast cave systems.
+
+**limousine** - any of various large passenger vehicles, especially a luxurious automobile; van or small bus on regular route
+- A sleek black limousine waited outside the hotel to take guests to the gala.
+- Airport shuttle limousines depart every twenty minutes from the main terminal.
+
+**limp** - walk lamely, especially with irregularity, as if favoring one leg; move or proceed haltingly or unsteadily
+- The runner began to limp slightly after twisting his ankle near the finish line.
+- After the battery ran low, the remote-controlled car could barely limp across the floor.
+
+**line** - thin continuous mark, as that made by a pen, pencil, or brush applied to a surface; border or boundary
+- Draw a straight line with a ruler to separate the two columns cleanly.
+- Please check line 42 of the script where the syntax error occurred.
+
+**linear** - having form of a line; straight; consisting of lines; lineal
+- Learning a complex skill is rarely a smooth, linear progression.
+- The chart shows a clear linear relationship between hours studied and test scores.
+
+**linen** - fabric woven with fibers from the flax plant; thread made from fibers of the flax plant
+- Breathable linen shirts are ideal for staying cool during humid summers.
+- Freshly laundered bed linen was folded neatly inside the hallway closet.
+
+**liner** - vessel belonging to a regular line of packets, as ship or plane
+- The ocean liner docked at the harbor early in the morning with two thousand passengers.
+- Place a waterproof liner inside the trash bin to keep it clean.
+
+**linger** - be slow in leaving; continue or persist; stay
+- The aroma of freshly ground coffee continued to linger in the kitchen.
+- Guests lingered over dessert and conversation long after dinner ended.
+
+**linguistics** - humanistic study of language and literature
+- Studying linguistics reveals fascinating patterns in how human languages evolve.
+- Computational linguistics powers modern speech recognition and translation tools.
+
+**link** - be or become joined or united; connect, fasten, or put together two or more pieces
+- Click the shared link to view the updated project roadmap.
+- Strong evidence links regular sleep schedules with sharper memory recall.
+
+**liquid** - fluid; juice; substance in fluid state
+- At room temperature, mercury is the only metal that remains a liquid.
+- Keep liquid containers tightly sealed inside your travel backpack.
+
+**liquor** - any liquid, as water, milk, blood, sap, juice; alcoholic or spirituous fluid
+- The recipe calls for a splash of cooking liquor to deglaze the pan.
+- Local regulations restrict the sale of hard liquor to licensed stores.
+
+**list** - lean or cause to lean to the side; lean over; itemize
+- Write a prioritized list of tasks before opening your inbox each morning.
+- The damaged cargo ship began to list slightly to one side in rough seas.
+
+**literacy** - reading and writing; ability to read and write
+- Basic data literacy helps teams interpret metrics without jumping to false conclusions.
+- Community libraries play a major role in improving childhood literacy rates.
+
+**literal** - according to the letter or verbal expression; exactly as stated
+- A literal word-for-word translation of an idiom often misses its real meaning.
+- Take her advice seriously, though not in an overly literal way.
+
+**literally** - with meaning; word for word; letter by letter
+- He translated the historical inscription literally from the original Latin.
+- The server room was literally freezing after the thermostat malfunctioned.
+
+**literary** - knowledgeable about literature; of or relating to or characteristic of literature
+- The city hosts an annual literary festival featuring novelists and poets.
+- Her essays combine sharp technical analysis with an engaging literary style.
+
+**literate** - educated; schooled; one who can read and write
+- Today's workplace increasingly expects professionals to be both financially and digitally literate.
+- Nearly the entire adult population in the region is literate.
+
+---
+
+### PAGE 98
+
+**literature** - imaginative or creative writing, especially of recognized artistic value; art or occupation of a literary writer
+- Reviewing existing scientific literature prevents duplicating past experiments.
+- Classic world literature explores timeless questions about human nature.
+
+**litter** - make untidy by discarding rubbish carelessly; scatter about
+- Please use the recycling bins and do not litter along the hiking trail.
+- Loose papers and cables littered the desk before he organized his workspace.
+
+**livelihood** - subsistence; financial means whereby one lives
+- Coastal fishermen depend directly on healthy marine ecosystems for their livelihood.
+- Learning in-demand software skills helped her build a sustainable livelihood.
+
+**lively** - busy; energetic; vigorous
+- The panel sparked a lively discussion about open-source sustainability.
+- A lively street market fills the town square every Saturday morning.
+
+**liver** - large and complicated reddish-brown glandular organ located in upper right chest
+- The human liver plays a vital role in filtering toxins and regulating metabolism.
+- A balanced diet supports long-term liver and cardiovascular health.
+
+**livestock** - any animals kept for use or profit
+- Ranchers moved the livestock to higher pastures before the river flooded.
+- Proper nutrition and clean water keep farm livestock healthy year-round.
+
+**load** - burden; something which is laid on or put in anything for conveyance; quantity which can be carried or drawn in some specified way
+- Load balancing distributes incoming web traffic evenly across multiple servers.
+- He carried a heavy load of textbooks back from the campus library.
+
+**loaf** - any thick lump, mass, or cake, especially, a large regularly shaped or molded mass, as of bread
+- She baked a crusty loaf of sourdough bread on Sunday morning.
+- Slice the warm loaf carefully once it cools slightly on the rack.
+
+**loan** - give temporarily; temporary provision of money
+- They took out a low-interest small business loan to purchase new equipment.
+- Could you loan me your spare charger until my battery reaches fifty percent?
+
+**lobby** - a group of people who try to influence legislation; hall; room; a large entrance or reception room or area
+- Meet me in the hotel lobby ten minutes before the taxi arrives.
+- Environmental groups continue to lobby lawmakers for cleaner energy standards.
+
+**lobster** - any large macrurous crustacean used as food
+- Freshly steamed lobster served with melted butter is a coastal specialty.
+- Lobsters shed their hard outer shells periodically as they grow larger.
+
+**locality** - place; district; surrounding or nearby region; particular neighborhood
+- Every locality has its own unique architectural traditions and dialects.
+- Search results are automatically tailored to your current locality.
+
+**locate** - find; monitor; settle; determine or specify the position or limits of
+- Use the search bar to locate specific log entries by timestamp.
+- Rescuers managed to locate the missing hikers before nightfall.
+
+**location** - scene; site; place where something is or could be located
+- The quiet corner café is an ideal location for a focused afternoon study session.
+- Always double-check the file path location before running a cleanup script.
+
+**lock** - strand or cluster of hair; fastening together; a closing of one thing upon another; device operated by a key
+- Remember to lock the front door whenever you leave the apartment.
+- A small lock of hair fell across his forehead as he leaned over the desk.
+
+**locomotive** - of or relating to locomotion; a wheeled vehicle consisting of a self-propelled engine
+- A powerful diesel locomotive pulled forty freight cars up the mountain grade.
+- Early steam locomotives revolutionized overland travel in the nineteenth century.
+
+**locust** - any one of numerous species of long-winged, migratory insects, of the family Acrididae
+- Vast swarms of locusts can devastate crops across entire agricultural regions.
+- Early warning systems help farmers track migratory locust movements.
+
+**lodge** - small house on the grounds of an estate or a park, used by a caretaker or gatekeeper
+- We stayed at a cozy timber lodge nestled beside the mountain lake.
+- Please lodge your formal complaint with the customer service desk.
+
+**lodging** - accommodation; lodging
+- Book your lodging early if you plan to travel during the peak summer festival.
+- The inn offered clean, affordable lodging for weary hikers.
+
+**lofty** - high, tall, having great height; idealistic, implying over-optimism
+- Setting lofty goals is inspiring, provided you break them into daily actionable steps.
+- Lofty cathedral ceilings echoed softly with the sound of footsteps.
+
+**log** - record of a voyage or flight; record of day to day activities
+- Check the application error log to trace why the background job failed.
+- Lumberjacks stacked freshly cut pine logs beside the forest road.
+
+**logic** - reasoned and reasonable judgment; a system of reasoning
+- Sound logic and clear evidence make any technical proposal much stronger.
+- Review the conditional logic in that loop to prevent an infinite cycle.
+
+**logical** - reasonable; based on known statements or events or conditions
+- Breaking a large problem into smaller modules is the most logical approach.
+- Her conclusion followed a clear, logical sequence of steps.
+
+**longevity** - long life; great duration of life; long duration or continuance, as in an occupation
+- Regular exercise and strong social ties contribute to human longevity.
+- Clean code architecture ensures the longevity of a software project.
+
+**longitude** - an imaginary great circle on the surface of the earth passing through the north and south poles
+- Together, latitude and longitude pinpoint any exact location on Earth.
+- Ships determine east-west position by measuring lines of longitude.
+
+---
+
+### PAGE 99
+
+**loom** - appear or take shape, usually in enlarged or distorted form
+- Dark storm clouds began to loom over the horizon as afternoon faded.
+- Final exam deadlines loom closer with every passing week.
+
+**loop** - circle; ring; move in loops; make a loop in; join with a loop
+- The script runs inside a while loop until all queued items are processed.
+- Tie the ribbon in a neat loop around the gift box.
+
+**loose** - unbound; untied; not attached, fastened, fixed, or confined
+- Tighten any loose screws on the chair legs before someone sits down.
+- Wear loose, breathable clothing when working out in hot weather.
+
+**loosen** - make loose or looser; make less severe or strict
+- Use a wrench to loosen the rusted bolt before lifting the cover.
+- Stretching your shoulders helps loosen tight muscles after hours at a desk.
+
+**lose** - fail to keep or to maintain; cease to have; be deprived of; fail to win
+- Back up your work frequently so you never lose progress during a power outage.
+- Even when teams lose a close match, they gain valuable experience.
+
+**lottery** - scheme for distribution of prizes by chance; gaming in which tickets bearing particular numbers draw prizes
+- Relying on luck instead of preparation is like treating your career like a lottery.
+- Housing units in the popular complex were allocated through a fair public lottery.
+
+**lounge** - public room with seating where people can wait; living room; lobby
+- Travelers relaxed in the departure lounge while waiting for their boarding call.
+- Sunlight streamed into the comfortable student lounge between classes.
+
+**low** - utter sound made by cattle; make a low noise
+- Keep background music volume low while studying complex material.
+- Cattle began to low softly in the barn around feeding time.
+
+**loyal** - steadfast in allegiance or duty; faithful to a person, ideal, custom, cause, or duty
+- Loyal customers appreciate consistent quality and honest communication.
+- A loyal friend stands by you during both successes and setbacks.
+
+**lubricate** - make smooth or slippery
+- Apply a few drops of machine oil to lubricate the squeaky door hinges.
+- Motor oil lubricates engine parts to reduce friction and overheating.
+
+**lumber** - move heavily or clumsily; cut down timber of
+- Trucks loaded with freshly milled lumber headed toward the construction site.
+- A sleepy bear lumbered slowly across the clearing at dawn.
+
+**luminous** - shining; emitting light, especially emitting self-generated light
+- The watch features luminous hands that are easy to read in total darkness.
+- A luminous full moon reflected brightly across the calm lake.
+
+**lump** - a small mass of matter of irregular shape; irregular or shapeless mass; small cube of sugar
+- Stir the sauce continuously so no flour lumps form while heating.
+- She dropped a single sugar lump into her afternoon cup of tea.
+
+**lunar** - pertaining to the moon; affecting the moon
+- Observers gathered on the roof to watch the total lunar eclipse.
+- Lunar tides rise and fall twice daily along ocean coastlines.
+
+**luxurious** - rich and superior in quality; lavish
+- Soft velvet cushions gave the reading nook a warm, luxurious feel.
+- They treated themselves to a luxurious weekend retreat by the sea.
+
+**luxury** - something that is an indulgence rather than necessity; excessively expensive
+- Uninterrupted quiet time feels like a rare luxury during a busy launch week.
+- Reliable clean water should be a basic right rather than a luxury.
+
+---
+
+### PAGE 100 (M)
+
+**mackintosh** - waterproof long coat made of rubberized cloth
+- He slipped on a heavy mackintosh before stepping out into the steady drizzle.
+- A classic mackintosh keeps rain out without needing an umbrella in gusty wind.
+
+**magic** - any art that invokes supernatural powers
+- Good user interface design feels like magic when complex tasks take one click.
+- The children watched the stage magic show with wide-eyed amazement.
+
+**magician** - one who performs magic tricks to amuse an audience; sorcerer; wizard
+- The magician made a silver coin vanish and reappear behind a volunteer's ear.
+- Skilled audio engineers are magicians at cleaning up noisy recordings.
+
+**magistrate** - civil officer with power to administer and enforce law
+- The local magistrate reviewed the minor traffic dispute in morning court.
+- Both parties presented their statements calmly before the magistrate.
+
+**magnetic** - having the properties of attracting iron or steel; captivating; attractive; being to draw or pull
+- A magnetic screwdriver tip keeps tiny screws from dropping inside the case.
+- Her magnetic enthusiasm quickly drew volunteers to the community project.
+
+**magnetism** - attraction for iron; associated with electric currents as well as magnets
+- Physics students explored the link between electricity and magnetism in lab.
+- A compass needle aligns with Earth's natural magnetism to point north.
+
+**magnificent** - grand or noble in thought or deed; outstanding of its kind
+- From the summit, hikers enjoyed a magnificent panoramic view of the valley.
+- The orchestra gave a magnificent performance of the symphony.
+
+**magnify** - intensify; increase; make greater in size; enlarge
+- A jeweler's loupe can magnify tiny hallmarks engraved inside a ring.
+- Rushing under stress tends to magnify small misunderstandings.
+
+**magnitude** - extent; greatness of rank, size, or position
+- Engineers underestimated the sheer magnitude of the data migration.
+- Earthquakes are measured on a logarithmic scale of magnitude.
+
+**maintain** - keep in any particular state or condition; keep up or carry on; continue
+- Consistent daily practice helps you maintain fluency in a foreign language.
+- Clean documentation makes open-source repositories much easier to maintain.
+
+**maintenance** - preservation; support; continuance; court-ordered support paid by one spouse to another
+- Scheduled server maintenance will take place Sunday at two in the morning.
+- Preventive maintenance keeps vehicles running safely for hundreds of thousands of miles.
+
+**maize** - tall annual cereal grass bearing kernels on large ears
+- Golden fields of maize stretched across the fertile river valley.
+- Maize is a staple crop harvested for both food and livestock feed.
+
+**majesty** - nobility; greatness and dignity of a sovereign; royal personage
+- Visitors stood in quiet awe of the canyon's towering natural majesty.
+- Crowds lined the avenue to greet His Majesty during the national celebration.
+
+**major** - greater in number, quantity, or extent; more important
+- Refactoring the authentication module was a major milestone for the release.
+- Safety should always remain a major priority in every engineering project.
+
+**majority** - greater number or part; a number more than half of the total
+- The vast majority of users preferred the cleaner single-page layout.
+- A two-thirds majority was required to pass the constitutional amendment.
+
+**malady** - disease, disorder, or ailment; unwholesome condition
+- Lack of clear communication is a common malady in fast-growing organizations.
+- Herbalists historically studied local plants to treat seasonal maladies.
+
+**malaise** - general sense of depression or unease; vague feeling of bodily discomfort, as at beginning of illness
+- A lingering sense of malaise often precedes the onset of a seasonal cold.
+- Prolonged uncertainty created widespread malaise across the industry.
+
+**malice** - enmity of heart; malevolence; ill will; spirit delighting in harm or misfortune to another
+- Her blunt feedback was meant to help, spoken entirely without malice.
+- Legal definitions of defamation often examine whether a statement was made with malice.
+
+**malicious** - deliberately harmful; spiteful; proceeding from extreme hatred
+- Antivirus software blocked a malicious script hidden inside the email attachment.
+- Spreading malicious rumors only damages your own credibility.
+
+**manifest** - clearly apparent to understanding; obvious
+- His dedication to craft was manifest in every detail of the finished prototype.
+- Shipping delays quickly became manifest across the quarterly inventory report.
+
+**manifestation** - revelation; indication of the existence, reality, or presence of something
+- Frequent syntax errors are often a manifestation of fatigue rather than lack of skill.
+- The festival is a vibrant manifestation of regional music and folklore.
+
+**manifesto** - public declaration of principles; statement of policy
+- The founders published a brief manifesto outlining their commitment to open standards.
+- Voters read each party's manifesto carefully before casting their ballots.
+
+---
+
+### PAGE 101
+
+**manipulate** - operate with one's hands; control or play upon people, forces artfully
+- Python scripts can easily manipulate thousands of CSV rows in seconds.
+- Ethical communicators persuade with facts rather than trying to manipulate emotions.
+
+**mansion** - dwelling-house of the better class; a large or stately residence
+- The historic hillside mansion was converted into a public art museum.
+- Iron gates opened onto a tree-lined driveway leading up to the stone mansion.
+
+**manual** - guide book; hand-operated
+- Consult the user manual for exact torque specifications before assembling the frame.
+- Automating manual data entry eliminated hours of repetitive work each week.
+
+**manufacture** - make products by hand or machinery; make from raw materials
+- Local workshops manufacture precision components for medical devices.
+- Do not manufacture excuses when an honest explanation works better.
+
+**manuscript** - written with or by the hand; not printed; literary or musical composition written with the hand
+- She submitted her revised research manuscript to the peer-reviewed journal.
+- Archivists carefully preserved the medieval illuminated manuscript under glass.
+
+**map** - depict as if on a map; plan or delineate, especially in detail; arrange
+- Let us map out the entire workflow on a whiteboard before writing any code.
+- Offline maps are essential when hiking in areas without cellular reception.
+
+**maple** - tree of the genus Acer, including about fifty species
+- Maple leaves turn brilliant shades of red and orange every autumn.
+- Pure maple syrup is made by boiling sap tapped from sugar maple trees.
+
+**marble** - hard crystalline metamorphic rock that takes a high polish
+- Cool white marble floors kept the sunlit courtyard hallway comfortable.
+- The sculptor carved a lifelike figure from a single block of Italian marble.
+
+**march** - walking with regular steps; a procession of people walking together; steady advance
+- Nothing can stop the steady march of technological progress.
+- Musicians practiced their formation march ahead of the holiday parade.
+
+**margin** - border; rim; room
+- Leave a comfortable safety margin when estimating project deadlines.
+- She jotted quick summary notes in the wide margin of the textbook.
+
+**marginal** - of or pertaining to a margin; written or printed in the margin
+- The costly hardware upgrade produced only a marginal improvement in speed.
+- Marginal notes in old books often reveal how past readers engaged with the text.
+
+**marine** - sea-dwelling; maritime; naval
+- Marine biologists study coral reefs to monitor ocean biodiversity.
+- Coastal weather stations broadcast daily marine forecasts for local sailors.
+
+**mariner** - one whose occupation is to assist in navigating ships; seaman or sailor
+- Experienced mariners navigated by the stars long before modern GPS existed.
+- The veteran mariner shared stories of crossing stormy winter seas.
+
+**marked** - noticeable or pronounced; having one or more distinguishing marks
+- There was a marked improvement in latency after optimizing the database indexes.
+- Keep emergency exits clearly marked at all times.
+
+**marsh** - swamp; bog; low lying wet land with grassy vegetation
+- Migratory herons waded through the tall reeds of the coastal marsh.
+- Boardwalks allow visitors to explore the fragile marsh ecosystem safely.
+
+**marshal** - put in order; arrange or place something in line
+- Take time to marshal your strongest evidence before presenting your argument.
+- Event staff helped marshal runners into starting corrals by pace.
+
+**martyr** - one who makes great sacrifices or suffers to further belief or principle; one who endures great suffering
+- Historical monuments honor those who stood as martyrs for freedom and justice.
+- You do not need to be a martyr—ask for help when your workload gets overwhelming.
+
+**marvel** - wonder; strong surprise; astonishment
+- Visitors never cease to marvel at the engineering behind ancient stone aqueducts.
+- Modern microchips are a marvel of precision manufacturing.
+
+**masculine** - of the male sex; not female; having the qualities of a man
+- In many languages, nouns are grammatically categorized as masculine or feminine.
+- The tailored wool coat had a sharp, structured, masculine silhouette.
+
+**mask** - try to conceal something; disguise; hide under a false appearance
+- Adding heavy spices can mask the natural flavor of fresh ingredients.
+- Wear a dust mask when sanding wood in an enclosed workshop.
+
+**massacre** - killing of a considerable number of human beings under circumstances of atrocity or cruelty
+- Historians documented the tragedy to ensure the victims of the massacre are remembered.
+- Our team suffered an absolute massacre in the chess tournament, losing every round.
+
+**massive** - enormous; colossal; consisting of great mass; containing a great quantity of matter
+- Indexing a massive dataset requires careful memory management.
+- A massive oak tree shaded the entire corner of the village square.
+
+**mast** - fruit of the oak and beech, or other forest trees; nuts; acorns; a pole, or long, strong, round piece of timber, or spar, set upright in a boat or vessel, to sustain the sails, yards, rigging
+- Sailors hoisted the mainsail high up the wooden mast to catch the breeze.
+- Forest wildlife relies heavily on autumn acorn mast to build winter fat reserves.
+
+**masterpiece** - chief excellence or great talent; outstanding work of art or craft
+- Every clean, well-tested module contributes to turning software into a masterpiece.
+- Visitors queued for hours to view the Renaissance painter's famous masterpiece.
+
+**match** - something that resembles or harmonizes with
+- The deep navy curtains are a great match for the warm oak furniture.
+- Regular expressions make it easy to match specific text patterns in logs.
+
+**mate** - a fellow member of a team
+- A reliable teammate makes debugging complex issues far less stressful.
+- Penguins often reunite with the same mate each breeding season.
+
+---
+
+### PAGE 102
+
+**material** - of, relating to, or composed of matter; concerned with physical, not from intellectual or spiritual
+- Choosing breathable cotton material makes summer clothes much more comfortable.
+- Gather all reference material before drafting your research outline.
+
+**materialism** - philosophical theory that matter is the only reality
+- Critics argue that excessive materialism distracts people from meaningful relationships.
+- In philosophy, materialism holds that physical matter is the fundamental substance of nature.
+
+**mathematics** - science dealing with the logic of quantity and shape
+- Linear algebra and statistics are branches of mathematics essential to machine learning.
+- Clear reasoning in mathematics builds strong problem-solving intuition.
+
+**mattress** - quilted bed; bed stuffed with hair, moss, or other suitable material, and quilted or otherwise fastened
+- Investing in a supportive mattress dramatically improves sleep quality.
+- Rotate your mattress every few months so it wears evenly over time.
+
+**mature** - develop and reach maturity; grow old or older
+- Open-source libraries become more stable as their ecosystems mature.
+- Fruit trees need several years to mature before producing a full harvest.
+
+**maturity** - state or quality of being mature; ripeness; full development; arrival of the time fixed for payment
+- Accepting constructive feedback calmly is a sign of professional maturity.
+- Government bonds pay back their full principal upon reaching maturity.
+
+**maximum** - the largest possible quantity
+- Set a maximum token cap per request to keep API usage predictable.
+- The elevator carries a maximum load of eight passengers safely.
+
+**meadow** - tract of low or level land producing grass; any field on which grass is grown for hay
+- Wildflowers bloomed across the sunlit alpine meadow in early summer.
+- Deer stepped quietly out of the forest edge into the open meadow.
+
+**measure** - determine the size of something; mark, lay out, or establish dimensions; estimate by evaluation or comparison
+- Measure twice and cut once to avoid wasting expensive lumber.
+- Benchmarks help us measure real performance gains rather than guessing.
+
+**mechanical** - automatic; monotonous; relating to or governed by or in accordance with mechanics
+- A mechanical watch keeps time using gears and springs instead of a battery.
+- Proofreading requires focus rather than purely mechanical skimming.
+
+**mechanics** - branch of physics concerned with the motion of bodies
+- Understanding the mechanics of a language helps you construct complex sentences accurately.
+- Classical mechanics explains how forces govern the motion of everyday objects.
+
+**mechanism** - device; machine; the technical aspects of doing something
+- A retry mechanism with exponential backoff helps handle temporary network glitches.
+- Clockmakers assemble intricate brass gears inside each timepiece mechanism.
+
+**medal** - a piece of metal in form of coin, and intended to preserve remembrance of notable event or person, or to serve as a reward
+- She won a gold medal in the regional track championship after months of training.
+- Veterans wore their service medals proudly during the memorial ceremony.
+
+**medieval** - very old-fashioned; as if belonging to the Middle Ages
+- Cobblestone streets and stone towers preserved the town's medieval charm.
+- Using manual ledgers instead of spreadsheets feels almost medieval today.
+
+**meditate** - dwell on anything in thought; think seriously; keep the mind fixed upon; purpose; intend
+- Taking ten quiet minutes to meditate each morning helps sharpen focus.
+- He paused to meditate carefully on the long-term trade-offs before deciding.
+
+**meditation** - lengthy intent consideration; long and thoughtful observation; contemplation of spiritual matters
+- Daily mindfulness meditation can lower stress and improve emotional balance.
+- Her essay is a thoughtful meditation on craftsmanship in the digital age.
+
+**medium** - state that is intermediate between extremes
+- Cook the onions over medium heat until they turn soft and translucent.
+- Video has become a dominant medium for interactive technical tutorials.
+
+**meek** - quiet and obedient; showing patience and humility
+- Do not mistake his meek, soft-spoken manner for a lack of determination.
+- Even the most meek person will speak up when core principles are crossed.
+
+**melancholy** - gloomy; feeling of thoughtful sadness; affected by depression
+- Rainy autumn evenings often carry a quiet, poetic sense of melancholy.
+- A solo cello played a slow, melancholy melody in the dimly lit hall.
+
+**melody** - tune; pleasing succession or arrangement of sounds; poem suitable for setting to music or singing
+- That simple piano melody stayed stuck in my head all afternoon.
+- Songbirds filled the morning air with bright, overlapping melodies.
+
+**melon** - juicy fruit of certain cucurbitaceous plants, as the muskmelon, watermelon; plant that produces the fruit juicy
+- Chilled slices of sweet watermelon make a refreshing snack on hot days.
+- Tap a ripe melon gently to listen for a deep, hollow sound.
+
+**melt** - changed from a solid to a liquid state especially by the application of heat
+- Warm spring sunshine quickly began to melt the remaining snowbanks.
+- Butter melts evenly when added to a preheated skillet.
+
+**memo** - short note; memorandum; written proposal or reminder
+- Management circulated a brief memo outlining the updated remote-work schedule.
+- Jot down a quick memo after each meeting so action items are never forgotten.
+
+---
+
+### PAGE 103
+
+**memorial** - monument; short note or abstract, intended for registry, exhibiting the particulars of a deed
+- Visitors laid wreaths at the stone memorial honoring local volunteers.
+- The annual lecture serves as a living memorial to the department's founder.
+
+**memorize** - commemorate; commit to memory; learn by heart
+- Learning words in context works much better than trying to memorize isolated lists.
+- Actors spend weeks rehearsing to memorize every line of the script.
+
+**memory** - faculty of mind by which it retains the knowledge of previous thoughts, impressions, or events
+- Spaced repetition strengthens long-term memory for new vocabulary.
+- Increasing system RAM gave the workstation enough memory for large models.
+
+**menace** - danger; a threat or the act of threatening; something that is a source of danger; threaten; intimidate
+- Unsecured public Wi-Fi networks pose a serious menace to sensitive credentials.
+- Dark thunderheads menaced the coastal fleet as winds picked up.
+
+**mend** - make repairs or restoration to; fix; improve
+- She used needle and thread to mend the torn seam on her favorite jacket.
+- Honest apologies go a long way toward mending strained friendships.
+
+**mental** - involving mind or intellectual process; affected by disorder of mind
+- Solving logic puzzles provides great mental exercise during study breaks.
+- Protecting your mental energy requires setting clear boundaries around notifications.
+
+**mentality** - mental action or power; intellectual activity; intellectuality
+- A growth mentality turns debugging setbacks into learning opportunities.
+- Short-term thinking is a common mentality that undermines sustainable engineering.
+
+**mention** - speak or notice of anything, usually in a brief or cursory manner
+- Did she mention what time the afternoon workshop begins?
+- Be sure to mention all external dependencies in the project README.
+
+**menu** - an agenda of things to do
+- Click the settings icon in the top corner to open the configuration menu.
+- The neighborhood bistro updates its seasonal menu every month.
+
+**mercantile** - trading; commercial; of or relating to trade or traders
+- Historic port cities grew wealthy as bustling centers of mercantile trade.
+- The museum occupies a restored nineteenth-century mercantile warehouse.
+
+**merchandise** - objects for sale; goods
+- Store staff arranged seasonal merchandise neatly along the front display tables.
+- Online retailers inspect returned merchandise before restocking items.
+
+**merchant** - one who traffics on a large scale, especially with foreign countries; trafficker; trader
+- Spice merchants traveled thousands of miles along ancient overland routes.
+- Local merchants rely on foot traffic from the weekend farmers market.
+
+**mercy** - compassionate treatment of unfortunate and helpless; willingness to spare or to help; disposition to be kind
+- Small coastal boats are at the mercy of sudden squalls when far from shore.
+- The judge showed mercy by reducing the penalty for the first-time offense.
+
+**mere** - being nothing more than what is specified; considered apart from anything else; small; slight
+- Even a mere five minutes of daily review keeps vocabulary fresh.
+- The mere thought of losing unsaved work reminded him to commit his code.
+
+**merge** - combine; unite
+- Two lanes merge into one just before the highway bridge.
+- Review all automated checks before you merge a feature branch into main.
+
+**merit** - virtue; admirable quality or attribute; credit
+- Each proposal will be evaluated strictly on its technical merit.
+- Her suggestion has plenty of merit and deserves a small prototype test.
+
+**mermaid** - legendary sea creature having the head and upper body of a woman and the tail of a fish
+- Sailors told ancient tales of mermaids singing near rocky ocean reefs.
+- A bronze statue of a mermaid overlooks the harbor entrance.
+
+**mesh** - opening or space inclosed by the threads of a net between knot and knot; network or net
+- Fine wire mesh on the window screen keeps mosquitoes out while letting air flow.
+- Their complementary skill sets mesh together seamlessly on complex builds.
+
+**mess** - soft semi liquid food; a quantity of food set on a table at one time; provision of food for one meal
+- Clean up the kitchen mess right after cooking so dried sauces do not stick.
+- Untested hotfixes can turn a clean repository into a tangled mess.
+
+**metallic** - of or pertaining to metal; of metal nature; resembling metal
+- The laptop features a sleek, brushed metallic finish that resists fingerprints.
+- A faint metallic taste in tap water can indicate older plumbing pipes.
+
+**method** - orderly procedure or process; regular manner of doing anything
+- Sentence mining is a highly effective method for acquiring natural vocabulary.
+- Always document your experimental method so others can reproduce your results.
+
+**methodology** - system of methods followed in a particular discipline
+- Reviewers praised the paper's rigorous statistical methodology.
+- Agile methodology encourages iterative delivery and frequent feedback.
+
+**meticulous** - excessively careful; marked by extreme care in treatment of details
+- Her meticulous attention to formatting made the final report effortless to read.
+- Watchmaking demands meticulous precision with microscopic components.
+
+**metric** - relating to measurement; involving, or proceeding by measurement
+- Response latency is a key performance metric for interactive web apps.
+- Most scientific research uses the metric system for standardized measurements.
+
+**metropolitan** - city center; one who lives in a city center
+- High-speed rail connects suburbs quickly across the metropolitan area.
+- Metropolitan museums often house vast international art collections.
+
+**microscope** - magnifier of the image of small objects
+- Biology students examined plant cells under a compound microscope.
+- Putting the proposal under a microscope revealed two subtle edge cases.
+
+---
+
+### PAGE 104
+
+**microwave** - a short electromagnetic wave; cook or heat in a microwave oven
+- Reheat the leftover soup in the microwave for two minutes, stirring halfway.
+- Telecommunications towers use microwave signals to transmit data over line-of-sight links.
+
+**mighty** - having or showing great strength or force or intensity
+- A mighty oak stood at the center of the village for over three hundred years.
+- Even a mighty river begins as a small mountain stream.
+
+**migrant** - habitually moving from place to place especially in search of seasonal work; wandering
+- Migrant songbirds travel thousands of miles each autumn toward warmer climates.
+- Seasonal migrant workers help harvest crops across agricultural valleys.
+
+**migrate** - move from one country or region to another and settle there
+- Monarch butterflies migrate south every fall in massive colorful flocks.
+- We plan to migrate the legacy database to a faster storage engine next month.
+
+**migration** - movement of persons from one country or locality to another
+- Bird migration routes follow coastlines, rivers, and mountain ridges.
+- Careful schema validation ensures a smooth data migration with zero downtime.
+
+**milestone** - landmark; significant development
+- Passing all integration tests marked a major milestone in the project timeline.
+- Graduating from university is an unforgettable personal milestone.
+
+**military** - pertaining to soldiers, to arms, or to war; of whole body of soldiers
+- Military engineers built a temporary pontoon bridge after floods washed out the road.
+- Precision and discipline are hallmarks of military aviation.
+
+**milk** - white fluid secreted by the mammary glands of female mammals for the nourishment of their young
+- Pour cold milk over your morning oatmeal or stir a splash into hot coffee.
+- Fresh milk stays good longer when stored on an interior refrigerator shelf rather than the door.
+
+**miller** - one who keeps or attends a flour mill or gristmill; milling machine
+- The village miller ground harvested wheat into fine whole-grain flour.
+- Machinists used a precision miller to shape the aluminum housing.
+
+**millionaire** - one whose material wealth is valued at more than a million dollars
+- Living frugally and investing steadily helped the retired teacher become a millionaire.
+- The self-made millionaire funded scholarships for local engineering students.
+
+**mince** - cut into very small pieces; chop fine; suppress or weaken the force of
+- Mince two cloves of garlic finely before sautéing them in olive oil.
+- She never minces words when giving honest feedback on a draft.
+
+**mingle** - be all mixed up or jumbled together
+- Hosts encouraged guests to mingle over refreshments before the keynote started.
+- Warm aromas of cinnamon and roasted coffee mingled in the morning air.
+
+**miniature** - very small; model that represents something in a greatly reduced size
+- Hobbyists painted intricate details onto miniature railway models.
+- Modern smartphones pack miniature sensors that rival dedicated lab instruments.
+
+**minimize** - diminish; belittle; make small or insignificant
+- Caching frequent lookups helps minimize redundant network requests.
+- Good ergonomics minimize wrist and neck strain during long desk sessions.
+
+**minimum** - the smallest possible quantity
+- Keep external dependencies to a minimum so the script stays portable.
+- Applicants need a minimum of two years of practical experience for the role.
+
+**minister** - one who performs service for another; officer of justice; executive head of a government department
+- The minister of energy announced new incentives for solar microgrids.
+- Community volunteers minister to elderly neighbors during winter storms.
+
+**ministry** - act of serving; government department, at the administrative level normally headed by a minister
+- The ministry of education released updated guidelines for digital classrooms.
+- She spent a decade working in public policy within the health ministry.
+
+**minor** - of lesser importance or stature or rank; not of legal age; limited in size or scope
+- We fixed a few minor typos in the documentation before publishing.
+- A minor delay at the station did not affect our connecting train.
+
+**minority** - a group of people who differ racially or politically from a larger group
+- Only a small minority of respondents preferred the older interface design.
+- Protecting minority viewpoints leads to healthier, more thorough team debates.
+
+**minus** - less; requiring to be subtracted; negative
+- Ten minus four equals six.
+- Winter temperatures often drop to minus five degrees Celsius overnight.
+
+**minute** - extremely small; short note
+- Even minute dust particles can interfere with delicate optical lenses.
+- Give me just one minute to save these files before we head out.
+
+**miracle** - wonderful thing; something that excites admiration or astonishment
+- Finding an uncorrupted backup after a sudden disk failure felt like a miracle.
+- Modern vaccines are a scientific miracle that has saved millions of lives.
+
+**miraculous** - astonishing; amazing
+- The hiker made a miraculous recovery after spending two nights in freezing weather.
+- Seedlings staged a miraculous comeback once spring rain finally arrived.
+
+**miscarriage** - failure of administration or management; failure to attain a desired result or reach a destination
+- Suppressing key evidence resulted in a serious miscarriage of justice.
+- Poor coordination led to a complete miscarriage of the logistics plan.
+
+**mischief** - behavior that causes discomfiture or annoyance in another; tendency to play pranks or cause embarrassment
+- The playful kitten was full of mischief, batting pens off the desk all afternoon.
+- Keep curious toddlers out of mischief with engaging wooden puzzles.
+
+---
